@@ -1,4 +1,4 @@
-
+https://web.archive.org/web/20071013085712/http://oserrato.com/ottosblinkieracks.html
 
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
 
@@ -11,6 +11,10 @@ hi   i just came there to say pls dont show this to my older brother or the whol
 <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/e8e6bd02-6e27-4f87-b902-60dcec5cd7ab" />
 
 also i am the creator of metall and friends and a touhou arg, club penguin arg, and a object show arg and a few more
+
+
+<img width="150" height="34" alt="image" src="https://github.com/user-attachments/assets/4e426bfd-1564-4c8b-9ec8-f11141899bde" />
+
 
 go check and sign my strawpage NOW pls its so cool because im cool pls pls my gimmicks are empty as a fly in a empty wallet flying away
 
