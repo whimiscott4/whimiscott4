@@ -1,9 +1,9 @@
-https://adriansblinkiecollection.neocities.org/dividers/vine27.gif
+
 
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
 
 hi  older sister like older cousin if you're seeing this hi     
-hi   i just came there to say pls dont show this to my older brother or the whole family 😢,, :((( 
+hi   i just came there to say pls dont show this to my older brother or the whole family 😢,, :((( pls you are my older cousin thats a big sister to me PLS : (( (people that arent my older cousin ignore this pls)
 go check my strawpage NOW pls its so cool because im cool
 https://adriansblinkiecollection.neocities.org/stamps/b10.png
 
