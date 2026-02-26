@@ -2,6 +2,9 @@
 
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
 
+i like skateboarding (im a beginner and i SUCK at it) and drawing n stuff
+im learning coding but im SHIT at it
+
 hi  older sister like older cousin if you're seeing this hi     
 hi   i just came there to say pls dont show this to my older brother or the whole family 😢,, :((( pls you are my older cousin thats a big sister to me PLS : (( (people that arent my older cousin ignore this pls)
 
