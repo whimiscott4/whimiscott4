@@ -2,6 +2,8 @@ https://web.archive.org/web/20071013085712/http://oserrato.com/ottosblinkieracks
 
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
 
+https://blinkie.world/screenshots/banana-dawg%20convo.png
+
 i like skateboarding (im a beginner and i SUCK at it) and drawing n stuff
 im learning coding but im SHIT at it
 
