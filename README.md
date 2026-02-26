@@ -40,7 +40,7 @@ also i am the creator of metall and friends and a touhou arg, club penguin arg, 
 <img width="150" height="34" alt="image" src="https://github.com/user-attachments/assets/4e426bfd-1564-4c8b-9ec8-f11141899bde" />
 
 
-go check and sign my strawpage NOW pls its so cool because im cool pls pls my gimmicks are empty as a fly in a empty wallet flying away
+go check and sign my strawpage and atabook NOW pls its so cool because im cool pls pls my gimmicks and signs are empty as a fly in a empty wallet flying away
 
 https://adriansblinkiecollection.neocities.org/stamps/b10.png
 
