@@ -3,7 +3,11 @@
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
 
 
-https://github.com/user-attachments/assets/b5d1b6de-e682-4c10-9c48-25709bebba5a
+
+https://github.com/user-attachments/assets/22aa2fb3-3953-4ec9-99ec-48c5a3227662
+
+
+
 
 
 i like skateboarding (im a beginner and i SUCK at it) and drawing n stuff
