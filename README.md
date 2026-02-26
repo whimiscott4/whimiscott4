@@ -1,4 +1,16 @@
-hi
+https://adriansblinkiecollection.neocities.org/dividers/vine27.gif
+<img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
+
+hi  older sister like older cousin if you're seeing this hi     
+hi   i just came there to say pls dont show this to my older brother or the whole family 😢,, :((( 
+go check my strawpage NOW pls its so cool because im cool
+https://adriansblinkiecollection.neocities.org/stamps/b10.png
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/99abab44-96f6-48aa-bb44-cb049e27f74f" />
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/45efa20e-5d0d-4d5e-a9a2-5f75a6698423" />
+
+i like plants vs zombies and rayman and gori cuddly carnage and paper mario and bfdi and umamusume (Im in 98 fandoms last time i counted i think)
+rayman screaming sfx
+
 <!--
 **whimiscott4/whimiscott4** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
