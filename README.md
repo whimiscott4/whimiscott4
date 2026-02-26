@@ -41,7 +41,7 @@ https://adriansblinkiecollection.neocities.org/stamps/b10.png
 
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/45efa20e-5d0d-4d5e-a9a2-5f75a6698423" />
 
-i like plants vs zombies and rayman and gori cuddly carnage and paper mario and bfdi and umamusume and ihasafacelulz and club penguin (Im in 98 fandoms last time i counted i think)
+i like plants vs zombies and rayman and gori cuddly carnage and paper mario and bfdi and umamusume and angry birds and ihasafacelulz and club penguin (Im in 98 fandoms last time i counted i think)
 
 
 
