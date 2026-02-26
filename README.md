@@ -1,10 +1,9 @@
 
 
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/f2edd0a5-2ccd-40ac-a4b9-751e17dbbdc9" /> (questioning if ftm)
 
 
-<img width="490" height="844" alt="Screenshot 2026-02-26 170738" src="https://github.com/user-attachments/assets/48c4cfb1-b5c1-4867-ac48-27f624c93ae4" />
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/f2edd0a5-2ccd-40ac-a4b9-751e17dbbdc9" /> (questioning if ftm or girlflux)
 
 
 
