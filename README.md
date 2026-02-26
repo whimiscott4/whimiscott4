@@ -1,4 +1,4 @@
-https://web.archive.org/web/20071013085712/http://oserrato.com/ottosblinkieracks.html
+
 
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
 
