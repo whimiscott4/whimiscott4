@@ -7,6 +7,7 @@ hi   i just came there to say pls dont show this to my older brother or the whol
 
 <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/e8e6bd02-6e27-4f87-b902-60dcec5cd7ab" />
 
+also i am the creator of metall and friends and a touhou arg, club penguin arg, and a object show arg and a few more
 
 go check and sign my strawpage NOW pls its so cool because im cool pls pls my gimmicks are empty as a fly in a empty wallet flying away
 
