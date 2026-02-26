@@ -2,7 +2,9 @@
 
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
 
-https://www.tiktok.com/@jeannie2650/video/7609445088657165581
+
+https://github.com/user-attachments/assets/b5d1b6de-e682-4c10-9c48-25709bebba5a
+
 
 i like skateboarding (im a beginner and i SUCK at it) and drawing n stuff
 im learning coding but im SHIT at it
