@@ -1,4 +1,4 @@
-https://watermelon.crd.co/assets/images/gallery16/4b2d52cb.gif?v=75c8e322
+
 
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/f2edd0a5-2ccd-40ac-a4b9-751e17dbbdc9" /> (questioning if ftm)
