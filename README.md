@@ -30,11 +30,10 @@ https://github.com/user-attachments/assets/f34aa33e-d413-480b-b19e-09588ba4b3f8
 
 
 
+(https://frutigeraeroarchive.org/images/resources/metro/metro_3.png)
 
-<img width="755" height="132" alt="image" src="https://github.com/user-attachments/assets/b7e44e3c-d5b3-46aa-a1e2-1cc4c5334354" />
 
 
-![TouhouParseeGIF](https://github.com/user-attachments/assets/b9fa0c26-0d1d-4867-be4a-9b72f8a58847)
 
 i like skateboarding (im a beginner and i SUCK at it) and drawing n stuff(●'◡'●)
 and pixel art and animation ^ _ ^ (im a beginner and new at pixel animation) (❁´◡`❁)
