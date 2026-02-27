@@ -4,7 +4,9 @@
 
 
 
+
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
+
 
 
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/f2edd0a5-2ccd-40ac-a4b9-751e17dbbdc9" /> (questioning if ftm or girlflux)
@@ -35,7 +37,8 @@ https://github.com/user-attachments/assets/f34aa33e-d413-480b-b19e-09588ba4b3f8
 
 <img width="500" height="500" alt="2678964_ebadd" src="https://github.com/user-attachments/assets/56a2a83b-5e49-4a69-be48-d3ee6dd588c0" />
 
-https://i.pinimg.com/originals/23/c1/e4/23c1e4628aaef413ff86c170ff5e3d2b.jpg
+
+<img width="485" height="283" alt="Screenshot 2026-02-25 184408" src="https://github.com/user-attachments/assets/dbc9c2e9-40c3-4be7-8fa8-83b02ea59c8a" />
 
 
 i like skateboarding (im a beginner and i SUCK at it) and drawing n stuff(●'◡'●)
