@@ -1,4 +1,6 @@
-[<img width="500" height="57" alt="image" src="https://github.com/user-attachments/assets/6591fa2a-cd19-436d-a9e8-a49a0abbc2b6" />](https://img1.picmix.com/output/stamp/normal/1/2/0/1/2731021_603fd.png)
+<
+(https://img1.picmix.com/output/stamp/normal/1/2/0/1/2731021_603fd.png)
+<img width="500" height="500" alt="2678964_ebadd" src="https://github.com/user-attachments/assets/05b61398-3bcc-4260-8540-d759d4822e75" />
 
 
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
