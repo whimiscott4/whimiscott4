@@ -38,7 +38,8 @@ https://github.com/user-attachments/assets/f34aa33e-d413-480b-b19e-09588ba4b3f8
 <img width="500" height="500" alt="2678964_ebadd" src="https://github.com/user-attachments/assets/56a2a83b-5e49-4a69-be48-d3ee6dd588c0" />
 
 
-<img width="485" height="283" alt="Screenshot 2026-02-25 184408" src="https://github.com/user-attachments/assets/dbc9c2e9-40c3-4be7-8fa8-83b02ea59c8a" />
+<img width="498" height="451" alt="image" src="https://github.com/user-attachments/assets/5c21ec24-2342-4e44-b97f-3f24cd533eb0" />
+
 
 
 i like skateboarding (im a beginner and i SUCK at it) and drawing n stuff(●'◡'●)
