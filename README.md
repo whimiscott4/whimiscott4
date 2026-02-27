@@ -62,8 +62,9 @@ https://adriansblinkiecollection.neocities.org/stamps/b10.png
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/b46fdebb-9a6a-4e8d-9075-9465dedce7a3" />
 
 i like plants vs zombies, rayman, gori cuddly carnage,  paper mario, bfdi, umamusume, angry birds, ihasafacelulz, club penguin, pizza tower, touhou (Im in 98 fandoms last time i counted i think)
-https://i.pinimg.com/originals/23/c1/e4/23c1e4628aaef413ff86c170ff5e3d2b.jpg
 
+
+<img width="1527" height="857" alt="Screenshot 2026-02-27 223659" src="https://github.com/user-attachments/assets/72b6e39f-fb2f-44f2-919a-412b9095ce01" />
 
 
 rayman screaming sfx
