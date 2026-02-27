@@ -35,11 +35,11 @@ https://github.com/user-attachments/assets/f34aa33e-d413-480b-b19e-09588ba4b3f8
 
 
 
+<img width="860" height="443" alt="image" src="https://github.com/user-attachments/assets/3ed746d4-c901-431f-bf96-a62957214bb6" />
 
-<img width="500" height="500" alt="2678964_ebadd" src="https://github.com/user-attachments/assets/56a2a83b-5e49-4a69-be48-d3ee6dd588c0" />
 
 
-<img width="498" height="451" alt="image" src="https://github.com/user-attachments/assets/5c21ec24-2342-4e44-b97f-3f24cd533eb0" />
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/c1dae6f2-791c-4773-b65f-d519c2c1b95f" />
 
 
 
@@ -76,8 +76,8 @@ i like plants vs zombies, rayman, gori cuddly carnage,  paper mario, bfdi, umamu
 
 rayman screaming sfx
 
-<img width="200" height="200" alt="2678934_d8483" src="https://github.com/user-attachments/assets/defe8393-0970-4428-9e16-e114fbf11042" />
 
+<img width="500" height="500" alt="2678964_ebadd" src="https://github.com/user-attachments/assets/56a2a83b-5e49-4a69-be48-d3ee6dd588c0" />
 
 <!--
 **whimiscott4/whimiscott4** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
