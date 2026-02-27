@@ -1,4 +1,4 @@
-<img width="500" height="57" alt="image" src="https://github.com/user-attachments/assets/6591fa2a-cd19-436d-a9e8-a49a0abbc2b6" />
+[<img width="500" height="57" alt="image" src="https://github.com/user-attachments/assets/6591fa2a-cd19-436d-a9e8-a49a0abbc2b6" />](https://img1.picmix.com/output/stamp/normal/1/2/0/1/2731021_603fd.png)
 
 
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
@@ -30,13 +30,13 @@ https://github.com/user-attachments/assets/f34aa33e-d413-480b-b19e-09588ba4b3f8
 
 
 
-(https://frutigeraeroarchive.org/images/resources/metro/metro_3.png)
+[(https://frutigeraeroarchive.org/images/resources/metro/metro_3.png)](https://img1.picmix.com/output/stamp/normal/4/6/9/8/2678964_ebadd.png)
 
-
+https://i.pinimg.com/originals/23/c1/e4/23c1e4628aaef413ff86c170ff5e3d2b.jpg
 
 
 i like skateboarding (im a beginner and i SUCK at it) and drawing n stuff(●'◡'●)
-and pixel art and animation ^ _ ^ (im a beginner and new at pixel animation) (❁´◡`❁)
+and pixel art and animation ^ _ ^ (im a beginner and new at pixel animation) 
 im learning coding but im SHIT at it
 uh im a daiyousei, special week, hat kid, fictionkin
 and a blocky selfshipper (ever since bfb just released and when i was little i think, you may know me as ribbony or something)
@@ -61,7 +61,7 @@ https://adriansblinkiecollection.neocities.org/stamps/b10.png
 
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/b46fdebb-9a6a-4e8d-9075-9465dedce7a3" />
 
-i like plants vs zombies, rayman, gori cuddly carnage,  paper mario, bfdi, umamusume, angry birds, ihasafacelulz, club penguin, touhou (Im in 98 fandoms last time i counted i think)
+i like plants vs zombies, rayman, gori cuddly carnage,  paper mario, bfdi, umamusume, angry birds, ihasafacelulz, club penguin, pizza tower, touhou (Im in 98 fandoms last time i counted i think)
 ![SpecialWeekUmaMusumeGIF](https://github.com/user-attachments/assets/b6ad6351-134f-4b28-b68a-2878727572ae)
 
 
