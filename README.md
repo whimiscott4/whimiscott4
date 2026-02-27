@@ -48,8 +48,11 @@ https://adriansblinkiecollection.neocities.org/stamps/b10.png
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/99abab44-96f6-48aa-bb44-cb049e27f74f" />
 
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/45efa20e-5d0d-4d5e-a9a2-5f75a6698423" />
-https://watermelon.crd.co/assets/images/gallery15/20768e0e.gif?v=75c8e322
+
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/b46fdebb-9a6a-4e8d-9075-9465dedce7a3" />
+
 i like plants vs zombies, rayman, gori cuddly carnage,  paper mario, bfdi, umamusume, angry birds, ihasafacelulz, club penguin, touhou (Im in 98 fandoms last time i counted i think)
+![SpecialWeekUmaMusumeGIF](https://github.com/user-attachments/assets/b6ad6351-134f-4b28-b68a-2878727572ae)
 
 
 
