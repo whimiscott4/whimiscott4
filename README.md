@@ -1,5 +1,6 @@
 
-<img width="500" height="249" alt="2731021_603fd" src="https://github.com/user-attachments/assets/9fcfea17-7fd2-46b4-94e9-471dd6a2a98c" />
+
+<img width="200" height="200" alt="2678934_d8483" src="https://github.com/user-attachments/assets/24e440e9-0439-4f6d-980a-bdcac548c15e" />
 
 
 
@@ -22,7 +23,7 @@ https://github.com/user-attachments/assets/a5ed66ff-8b7e-4891-a365-c7861beddf78
 [ _ * ^ + 🗒  (^人^) _ + 🎶 ]
 
 
-
+![Profile Views](https://komarev.com/ghpvc/?username=whimiscott4&color=red)
 
 
 https://github.com/user-attachments/assets/f3941337-8b76-4a18-b1b7-7020a9d8ff33
@@ -73,8 +74,10 @@ i like plants vs zombies, rayman, gori cuddly carnage,  paper mario, bfdi, umamu
 
 <img width="1527" height="857" alt="Screenshot 2026-02-27 223659" src="https://github.com/user-attachments/assets/72b6e39f-fb2f-44f2-919a-412b9095ce01" />
 
-
 rayman screaming sfx
+
+<img width="200" height="200" alt="2678934_d8483" src="https://github.com/user-attachments/assets/defe8393-0970-4428-9e16-e114fbf11042" />
+
 
 <!--
 **whimiscott4/whimiscott4** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -90,4 +93,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: she/he/they/any
 - ⚡ Fun fact: jx1dx1 is my DAD!!
 -->
-![Profile Views](https://komarev.com/ghpvc/?username=whimiscott4&color=blue)
+
