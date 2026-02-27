@@ -37,6 +37,7 @@ https://github.com/user-attachments/assets/f34aa33e-d413-480b-b19e-09588ba4b3f8
 ![TouhouParseeGIF](https://github.com/user-attachments/assets/b9fa0c26-0d1d-4867-be4a-9b72f8a58847)
 
 i like skateboarding (im a beginner and i SUCK at it) and drawing n stuff(●'◡'●)
+and pixel art and animation ^ _ ^ (im a beginner and new at pixel animation) (❁´◡`❁)
 im learning coding but im SHIT at it
 uh im a daiyousei, special week, hat kid, fictionkin
 and a blocky selfshipper (ever since bfb just released and when i was little i think, you may know me as ribbony or something)
