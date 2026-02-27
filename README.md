@@ -1,6 +1,7 @@
-<
-(https://img1.picmix.com/output/stamp/normal/1/2/0/1/2731021_603fd.png)
-<img width="500" height="500" alt="2678964_ebadd" src="https://github.com/user-attachments/assets/05b61398-3bcc-4260-8540-d759d4822e75" />
+
+<img width="500" height="249" alt="2731021_603fd" src="https://github.com/user-attachments/assets/9fcfea17-7fd2-46b4-94e9-471dd6a2a98c" />
+
+
 
 
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
@@ -32,7 +33,7 @@ https://github.com/user-attachments/assets/f34aa33e-d413-480b-b19e-09588ba4b3f8
 
 
 
-[(https://frutigeraeroarchive.org/images/resources/metro/metro_3.png)](https://img1.picmix.com/output/stamp/normal/4/6/9/8/2678964_ebadd.png)
+<img width="500" height="500" alt="2678964_ebadd" src="https://github.com/user-attachments/assets/56a2a83b-5e49-4a69-be48-d3ee6dd588c0" />
 
 https://i.pinimg.com/originals/23/c1/e4/23c1e4628aaef413ff86c170ff5e3d2b.jpg
 
