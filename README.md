@@ -66,7 +66,7 @@ https://adriansblinkiecollection.neocities.org/stamps/b10.png
 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/99abab44-96f6-48aa-bb44-cb049e27f74f" />
 
-im in the touhou fandom, club penguin fandom, rayman fandom, pizza tower fandom, ihasafacelulz fandom, umamusume fandom, gori cuddly carnage, and more! (Im in 98 fandoms last time i counted i think)
+im in the touhou fandom, club penguin fandom, rayman fandom, pizza tower fandom, ihasafacelulz fandom, umamusume fandom, gori cuddly carnage, and the amazing world of gumball, and more. (*^▽^*) (Im in 98 fandoms last time i counted i think)
 
 <img width="500" height="87" alt="image" src="https://github.com/user-attachments/assets/19fef29f-42e7-4333-87ba-2e02d42861c1" />
 
