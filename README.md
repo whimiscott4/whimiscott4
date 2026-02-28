@@ -1,8 +1,9 @@
 
 
-<img width="200" height="200" alt="2678934_d8483" src="https://github.com/user-attachments/assets/24e440e9-0439-4f6d-980a-bdcac548c15e" />
 
 
+
+<img width="2048" height="319" alt="image" src="https://github.com/user-attachments/assets/d26449cc-1b8d-44c0-aa09-545daa370197" />
 
 
 
@@ -20,7 +21,7 @@ https://github.com/user-attachments/assets/a5ed66ff-8b7e-4891-a365-c7861beddf78
 
 
 
-[ _ * ^ + 🗒  (^人^) _ + 🎶 ]
+[ _ 🎩 * ^ + 🍹  (❁´◡`❁) _ + 🎀 ]
 
 
 ![Profile Views](https://komarev.com/ghpvc/?username=whimiscott4&color=red)
@@ -65,11 +66,9 @@ https://adriansblinkiecollection.neocities.org/stamps/b10.png
 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/99abab44-96f6-48aa-bb44-cb049e27f74f" />
 
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/45efa20e-5d0d-4d5e-a9a2-5f75a6698423" />
+im in the touhou fandom, club penguin fandom, rayman fandom, pizza tower fandom, ihasafacelulz fandom, umamusume fandom, gori cuddly carnage, and more! (Im in 98 fandoms last time i counted i think)
 
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/b46fdebb-9a6a-4e8d-9075-9465dedce7a3" />
-
-i like plants vs zombies, rayman, gori cuddly carnage,  paper mario, bfdi, umamusume, angry birds, ihasafacelulz, club penguin, pizza tower, touhou (Im in 98 fandoms last time i counted i think)
+<img width="500" height="87" alt="image" src="https://github.com/user-attachments/assets/19fef29f-42e7-4333-87ba-2e02d42861c1" />
 
 
 <img width="1527" height="857" alt="Screenshot 2026-02-27 223659" src="https://github.com/user-attachments/assets/72b6e39f-fb2f-44f2-919a-412b9095ce01" />
