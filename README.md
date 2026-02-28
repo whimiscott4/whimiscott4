@@ -33,7 +33,8 @@ https://github.com/user-attachments/assets/f364a306-b2db-49a8-96f7-9b64e607960b
 
 
 
-![MilkisLotteGIF](https://github.com/user-attachments/assets/f5cc4c98-fd40-4080-b744-644d299b25ec)
+![FlareonPokemonGIF](https://github.com/user-attachments/assets/4b5cd54c-a1e3-490e-9eba-bf3f5550eb39)
+
 
 
 
