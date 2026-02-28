@@ -36,6 +36,10 @@ Uploading Download - 2026-02-26T162523.488.mp4…
 
 
 
+https://github.com/user-attachments/assets/d61416cc-66a1-4dbd-a06f-77e9742f2cb9
+
+
+
 
 ![FlareonPokemonGIF](https://github.com/user-attachments/assets/4b5cd54c-a1e3-490e-9eba-bf3f5550eb39)
 
