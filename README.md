@@ -71,7 +71,10 @@ im in the touhou fandom, club penguin fandom, rayman fandom, pizza tower fandom,
 <img width="500" height="87" alt="image" src="https://github.com/user-attachments/assets/19fef29f-42e7-4333-87ba-2e02d42861c1" />
 
 
-<img width="1527" height="857" alt="Screenshot 2026-02-27 223659" src="https://github.com/user-attachments/assets/72b6e39f-fb2f-44f2-919a-412b9095ce01" />
+
+https://github.com/user-attachments/assets/948c2b03-3610-450f-b34c-ebeb3d083f27
+
+
 
 rayman screaming sfx
 
