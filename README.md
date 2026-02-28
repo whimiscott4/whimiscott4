@@ -31,7 +31,6 @@ https://github.com/user-attachments/assets/a5ed66ff-8b7e-4891-a365-c7861beddf78
 
 
 
-https://github.com/user-attachments/assets/34344299-2903-4074-a033-9e0e5d7ab2df
 
 
 
@@ -39,7 +38,12 @@ https://github.com/user-attachments/assets/34344299-2903-4074-a033-9e0e5d7ab2df
 
 
 
-Uploading Download - 2026-02-26T162523.488.mp4…
+
+
+
+
+
+https://github.com/user-attachments/assets/326781c0-e43f-4c52-b465-ad88c2512269
 
 
 
@@ -91,8 +95,10 @@ im in the touhou fandom, club penguin fandom, rayman fandom, pizza tower fandom,
 <img width="500" height="87" alt="image" src="https://github.com/user-attachments/assets/19fef29f-42e7-4333-87ba-2e02d42861c1" />
 
 
+(i have a addiction to those artists who can sing vs artists who cannot sing videos my bad)
+ 
+https://github.com/user-attachments/assets/e1b68ec5-4cbb-4f43-ba70-8523798a1e80
 
-https://github.com/user-attachments/assets/948c2b03-3610-450f-b34c-ebeb3d083f27
 
 
 
