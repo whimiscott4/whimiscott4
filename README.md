@@ -27,9 +27,13 @@ https://github.com/user-attachments/assets/a5ed66ff-8b7e-4891-a365-c7861beddf78
 ![Profile Views](https://komarev.com/ghpvc/?username=whimiscott4&color=red)
 
 
-https://github.com/user-attachments/assets/f3941337-8b76-4a18-b1b7-7020a9d8ff33
 
 
+https://github.com/user-attachments/assets/f364a306-b2db-49a8-96f7-9b64e607960b
+
+
+
+![MilkisLotteGIF](https://github.com/user-attachments/assets/f5cc4c98-fd40-4080-b744-644d299b25ec)
 
 
 
@@ -47,7 +51,8 @@ https://github.com/user-attachments/assets/f34aa33e-d413-480b-b19e-09588ba4b3f8
 ![magical](https://github.com/user-attachments/assets/332bdaa5-00bd-487c-b189-182a790fe72e)
 ![Virtual Angel](https://github.com/user-attachments/assets/b16edb87-3ccd-47a3-860a-df3d7c0b5f86)
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/84512215-d2e2-44f8-9996-c4f2f7a39a35" />
-<a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/3776/3776500pvv0sareio.gif" width=300 height=360 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>glitter-graphics.com</a>
+![3776500pvv0sareio](https://github.com/user-attachments/assets/f7b8174a-2e02-42f0-a39e-c6f1264590bd)
+
 
 
 i like skateboarding (im a beginner and i SUCK at it) and drawing n stuff(●'◡'●)
