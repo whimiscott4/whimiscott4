@@ -30,6 +30,10 @@ https://github.com/user-attachments/assets/a5ed66ff-8b7e-4891-a365-c7861beddf78
 https://github.com/user-attachments/assets/f3941337-8b76-4a18-b1b7-7020a9d8ff33
 
 
+![magical](https://github.com/user-attachments/assets/332bdaa5-00bd-487c-b189-182a790fe72e)
+![Virtual Angel](https://github.com/user-attachments/assets/b16edb87-3ccd-47a3-860a-df3d7c0b5f86)
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/84512215-d2e2-44f8-9996-c4f2f7a39a35" />
+
 
 
 https://github.com/user-attachments/assets/f34aa33e-d413-480b-b19e-09588ba4b3f8
