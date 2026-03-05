@@ -112,7 +112,8 @@ https://github.com/user-attachments/assets/e1b68ec5-4cbb-4f43-ba70-8523798a1e80
 rayman screaming sfx
 
 
-<img width="500" height="500" alt="2678964_ebadd" src="https://github.com/user-attachments/assets/56a2a83b-5e49-4a69-be48-d3ee6dd588c0" />
+<img width="1023" height="890" alt="image" src="https://github.com/user-attachments/assets/abbf08f1-e7f3-42ee-8960-3b5adf258bc3" />
+
 
 <!--
 **whimiscott4/whimiscott4** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
