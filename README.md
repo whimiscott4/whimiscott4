@@ -104,7 +104,9 @@ im in the touhou fandom, club penguin fandom, rayman fandom, pizza tower fandom,
 
 (i have a addiction to those artists who can sing vs artists who cannot sing videos my bad)
  
-https://github.com/user-attachments/assets/e1b68ec5-4cbb-4f43-ba70-8523798a1e80
+<img width="612" height="69" alt="image" src="https://github.com/user-attachments/assets/433ff0e5-e12f-4c4b-8a29-6123622808fe" />
+
+<img width="918" height="737" alt="Screenshot 2026-03-05 185850" src="https://github.com/user-attachments/assets/7c4cd6de-cd4e-4edc-b0bf-d3a8cc3a076f" />
 
 
 
