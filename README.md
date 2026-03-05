@@ -19,13 +19,10 @@
 
 
 
-[ _ 🎩 * ^ + 🍹  (❁´◡`❁) _ + 🎀 ]
+[ _ 🎩 * ^ + 🪙   ╰(*°▽°*)╯_ + 🍀 ]
 
 
-![Profile Views](https://komarev.com/ghpvc/?username=whimiscott4&color=red)
-
-
-
+![Profile Views](https://komarev.com/ghpvc/?username=whimiscott4&color=green)
 
 
 
@@ -41,7 +38,6 @@
 
 
 
-https://github.com/user-attachments/assets/326781c0-e43f-4c52-b465-ad88c2512269
 
 
 
@@ -49,7 +45,15 @@ https://github.com/user-attachments/assets/326781c0-e43f-4c52-b465-ad88c2512269
 
 
 
-https://github.com/user-attachments/assets/15494875-47d8-418e-af22-d0b88c931846
+https://github.com/user-attachments/assets/f4f1aee5-d89e-4325-bc85-f78dd50ec6e7
+
+
+
+
+
+
+https://github.com/user-attachments/assets/9123996c-0827-4ca2-ae12-925ef284b9f7
+
 
 
 
