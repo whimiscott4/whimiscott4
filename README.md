@@ -1,10 +1,8 @@
+(wip for saint patricks day happi early lucky day)
 
 
 
-
-
-<img width="2048" height="319" alt="image" src="https://github.com/user-attachments/assets/d26449cc-1b8d-44c0-aa09-545daa370197" />
-
+<img width="474" height="106" alt="image" src="https://github.com/user-attachments/assets/72e0c483-894c-4cbc-b709-c0718c69c8a4" />
 
 
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
