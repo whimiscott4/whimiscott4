@@ -60,7 +60,8 @@ https://github.com/user-attachments/assets/9123996c-0827-4ca2-ae12-925ef284b9f7
 
 
 
-<img width="900" height="360" alt="image" src="https://github.com/user-attachments/assets/3c096793-e2e1-448f-b687-77ad9f56c2c4" />
+<img width="1280" height="521" alt="image" src="https://github.com/user-attachments/assets/68e015bc-cda9-4ce9-b51f-52854c13ae91" />
+
 
 
 
