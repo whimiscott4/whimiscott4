@@ -6,7 +6,11 @@ i love the smell of robogas in the morning, it smells like victory./ref
 
 
 
+
+
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
+
+
 
 
 
@@ -90,7 +94,7 @@ https://github.com/user-attachments/assets/d3a71e4e-14d6-43e1-845b-65e25f9ab2b8
 ![3776500pvv0sareio](https://github.com/user-attachments/assets/f7b8174a-2e02-42f0-a39e-c6f1264590bd)
 
 
-
+im mainly in the bomberman fandom, gori cuddly carnage fandom, paper mario fandom, umamusume fandom, osc (object show community), touhou fandom, etc ^_^ pls int if you're in these fandoms too!!,, 
 i like skateboarding (im a beginner and i SUCK at it) and drawing n stuff(●'◡'●)
 and pixel art and animation ^ _ ^ (im a beginner and new at pixel animation) 
 im learning coding but im SHIT at it
