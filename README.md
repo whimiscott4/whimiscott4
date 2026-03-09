@@ -27,7 +27,7 @@ also uhh mario day is soon (mar10) uhh so early mario day i guess too what do i 
 [ _ 🎩 * ^ + 🪙   ╰(*°▽°*)╯_ + 🍀 ]
 
 
-![puffle count](https://komarev.com/ghpvc/?username=whimiscott4&color=green)
+![puffles!](https://komarev.com/ghpvc/?username=whimiscott4&color=green)
 
 
 
