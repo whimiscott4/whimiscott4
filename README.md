@@ -1,5 +1,8 @@
 ( happi early lucky day)
 i love the smell of robogas in the morning, it smells like victory./ref
+this is simliar to my intro except the file is too big so im putting a simliar one
+
+
 
 
 <img width="474" height="106" alt="image" src="https://github.com/user-attachments/assets/72e0c483-894c-4cbc-b709-c0718c69c8a4" />
