@@ -30,7 +30,7 @@ i love the smell of robogas in the morning, it smells like victory./ref
 [ _ 🎩 * ^ + 🪙   ╰(*°▽°*)╯_ + 🍀 ]
 
 
-![Puffles!](https://komarev.com/ghpvc/?username=whimiscott4&color=green)
+![puffles in my igloo](https://komarev.com/ghpvc/?username=whimiscott4&color=green)
 
 
 
