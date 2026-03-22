@@ -50,6 +50,18 @@ super cool video collection 😂 ✌ im not showing all of them because i dont w
 
 
 
+https://github.com/user-attachments/assets/ee7ecc15-1598-4511-a5d7-f2ccbd92ef10
+
+
+
+
+https://github.com/user-attachments/assets/9ac9fffb-5fc4-463f-b585-fe0078c3528d
+
+
+
+
+https://github.com/user-attachments/assets/6945a66c-2b23-4131-8a26-4bcd4776cc91
+
 
 
 
@@ -118,6 +130,7 @@ and pixel art and animation ^ _ ^ (im a beginner and new at pixel animation)
 im learning coding but im SHIT at it
 uh im a daiyousei, special week, hat kid, fictionkin
 please do not force me to follow you i only follow oomfs 😢 
+uhh... im cool yeah also i have a tumblr its whimiscott4
 and a blocky selfshipper (ever since bfb just released and when i was little i think, you may know me as ribbony or something)
 hi  older sister like older cousin if you're seeing this hi     
 hi   i just came there to say pls dont show this to my older brother or the whole family 😢,, :((( pls you are my older cousin thats a big sister to me PLS : (( (people that arent my older cousin ignore this pls)
