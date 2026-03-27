@@ -2,6 +2,9 @@
 i love the smell of robogas in the morning, it smells like victory./ref
 
 https://www.youtube.com/watch?v=OGbhJjXl9Rk
+update: ??? HOLY SHIT GUYS THANKS FOR 1000 PROFILE VIEWS
+
+![THANKYOU](https://github.com/user-attachments/assets/9d3f50b4-9c08-4560-b722-14340e151e5a)
 
 
 
