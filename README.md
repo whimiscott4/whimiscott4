@@ -22,7 +22,7 @@
 [ _ 🎩 * ^ + 🍹  (❁´◡`❁) _ + 🎀 ]
 
 
-![Profile Views](https://komarev.com/ghpvc/?username=whimiscott4&color=pink)
+![Profile Views](https://komarev.com/ghpvc/?username=whimiscott4&color=red)
 
 
 
