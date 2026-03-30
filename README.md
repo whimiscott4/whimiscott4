@@ -22,7 +22,7 @@
 [ _ 🎩 * ^ + 🍹  (❁´◡`❁) _ + 🎀 ]
 
 
-![Profile Views](https://komarev.com/ghpvc/?username=whimiscott4&color=red)
+![Profile Views](https://komarev.com/ghpvc/?username=whimiscott4&color=pink)
 
 
 
@@ -36,20 +36,29 @@
 
 
 
+super awesome video collection ok
+
+https://github.com/user-attachments/assets/57ea3e46-5d5a-4373-a8b3-d5aa6678e158
+
+
+
+https://github.com/user-attachments/assets/556096c2-264b-45a7-bc73-e2283eda9095
+
+
+
+
+https://github.com/user-attachments/assets/e25c501b-9591-4c3f-bd7f-701077665c93
+
+
+
+https://github.com/user-attachments/assets/1ddf0370-e297-4960-8ca9-78197adf8c9a
 
 
 
 
 
-https://github.com/user-attachments/assets/326781c0-e43f-4c52-b465-ad88c2512269
+https://github.com/user-attachments/assets/b5d332ff-fc99-4c22-9229-94bc06d0ec33
 
-
-
-
-
-
-
-https://github.com/user-attachments/assets/15494875-47d8-418e-af22-d0b88c931846
 
 
 
