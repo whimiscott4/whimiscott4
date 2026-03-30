@@ -1,23 +1,11 @@
 
-i love the smell of robogas in the morning, it smells like victory./ref
-
-https://www.youtube.com/watch?v=OGbhJjXl9Rk
-update: ??? HOLY SHIT GUYS THANKS FOR 1000 PROFILE VIEWS
 
 
-![THANKYOU](https://github.com/user-attachments/assets/168e5815-bfb0-45b6-b827-76164c426720)
-
-
-
-<img width="474" height="106" alt="image" src="https://github.com/user-attachments/assets/72e0c483-894c-4cbc-b709-c0718c69c8a4" />
-
-
+<img width="2048" height="319" alt="image" src="https://github.com/user-attachments/assets/d26449cc-1b8d-44c0-aa09-545daa370197" />
 
 
 
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
-
-
 
 
 
@@ -31,10 +19,10 @@ update: ??? HOLY SHIT GUYS THANKS FOR 1000 PROFILE VIEWS
 
 
 
-[ _ 🎩 * ^ + 🪙   ╰(*°▽°*)╯_ + 🍀 ]
+[ _ 🎩 * ^ + 🍹  (❁´◡`❁) _ + 🎀 ]
 
 
-![puffles in my igloo](https://komarev.com/ghpvc/?username=whimiscott4&color=green)
+![Profile Views](https://komarev.com/ghpvc/?username=whimiscott4&color=red)
 
 
 
@@ -49,74 +37,26 @@ update: ??? HOLY SHIT GUYS THANKS FOR 1000 PROFILE VIEWS
 
 
 
-super cool video collection 😂 ✌ im not showing all of them because i dont want my github to be full of 2763 videos
 
 
 
 
-https://github.com/user-attachments/assets/ee7ecc15-1598-4511-a5d7-f2ccbd92ef10
+https://github.com/user-attachments/assets/326781c0-e43f-4c52-b465-ad88c2512269
 
 
 
 
 
-https://github.com/user-attachments/assets/7607135c-ba66-4927-a90c-d141f2775a95
 
 
+https://github.com/user-attachments/assets/15494875-47d8-418e-af22-d0b88c931846
 
 
 
-https://github.com/user-attachments/assets/6945a66c-2b23-4131-8a26-4bcd4776cc91
 
 
 
-
-https://github.com/user-attachments/assets/f4f1aee5-d89e-4325-bc85-f78dd50ec6e7
-
-
-
-
-https://github.com/user-attachments/assets/f4c09f68-4a82-4f04-9c89-21104c935621
-
-
-
-
-https://github.com/user-attachments/assets/dbefad98-f067-4348-9391-829ab94df054
-
-
-
-
-
-
-https://github.com/user-attachments/assets/f44e4da3-010b-4b83-b143-a97bda4d1552
-
-
-
-
-https://github.com/user-attachments/assets/9123996c-0827-4ca2-ae12-925ef284b9f7
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-https://github.com/user-attachments/assets/d3a71e4e-14d6-43e1-845b-65e25f9ab2b8
-
-
-
-
-
-
-<img width="1280" height="521" alt="image" src="https://github.com/user-attachments/assets/68e015bc-cda9-4ce9-b51f-52854c13ae91" />
-
+<img width="860" height="443" alt="image" src="https://github.com/user-attachments/assets/3ed746d4-c901-431f-bf96-a62957214bb6" />
 
 
 
@@ -129,13 +69,12 @@ https://github.com/user-attachments/assets/d3a71e4e-14d6-43e1-845b-65e25f9ab2b8
 ![3776500pvv0sareio](https://github.com/user-attachments/assets/f7b8174a-2e02-42f0-a39e-c6f1264590bd)
 
 
-im mainly in the bomberman fandom, gori cuddly carnage fandom, paper mario fandom, umamusume fandom, osc (object show community), touhou fandom, etc ^_^ pls int if you're in these fandoms too!!,, 
+
 i like skateboarding (im a beginner and i SUCK at it) and drawing n stuff(●'◡'●)
 and pixel art and animation ^ _ ^ (im a beginner and new at pixel animation) 
 im learning coding but im SHIT at it
 uh im a daiyousei, special week, hat kid, fictionkin
 please do not force me to follow you i only follow oomfs 😢 
-uhh... im cool yeah also i have a tumblr its whimiscott4
 and a blocky selfshipper (ever since bfb just released and when i was little i think, you may know me as ribbony or something)
 hi  older sister like older cousin if you're seeing this hi     
 hi   i just came there to say pls dont show this to my older brother or the whole family 😢,, :((( pls you are my older cousin thats a big sister to me PLS : (( (people that arent my older cousin ignore this pls)
@@ -161,9 +100,7 @@ im in the touhou fandom, club penguin fandom, rayman fandom, pizza tower fandom,
 
 (i have a addiction to those artists who can sing vs artists who cannot sing videos my bad)
  
-<img width="612" height="69" alt="image" src="https://github.com/user-attachments/assets/433ff0e5-e12f-4c4b-8a29-6123622808fe" />
-
-<img width="918" height="737" alt="Screenshot 2026-03-05 185850" src="https://github.com/user-attachments/assets/7c4cd6de-cd4e-4edc-b0bf-d3a8cc3a076f" />
+https://github.com/user-attachments/assets/e1b68ec5-4cbb-4f43-ba70-8523798a1e80
 
 
 
@@ -171,21 +108,5 @@ im in the touhou fandom, club penguin fandom, rayman fandom, pizza tower fandom,
 rayman screaming sfx
 
 
-<img width="1023" height="890" alt="image" src="https://github.com/user-attachments/assets/abbf08f1-e7f3-42ee-8960-3b5adf258bc3" />
-
-
-<!--
-**whimiscott4/whimiscott4** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on a few projects
-- 🌱 I’m currently learning coding but im ass at it
-- 👯 I’m looking to collaborate on (*&T()_*&Y^(*_?? (i can only collab if i know you sadly)
-- 🤔 I’m looking for help with idk
-- 💬 Ask me about idk
-- 📫 How to reach me: no
-- 😄 Pronouns: she/he/they/any
-- ⚡ Fun fact: jx1dx1 is my DAD!!
--->
+<img width="500" height="500" alt="2678964_ebadd" src="https://github.com/user-attachments/assets/56a2a83b-5e49-4a69-be48-d3ee6dd588c0" />
 
