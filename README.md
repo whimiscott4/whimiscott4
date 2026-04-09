@@ -74,10 +74,8 @@ https://github.com/user-attachments/assets/12e0585d-e620-49b4-b1d0-72fd31fd8c86
 
 
 
+![robot64-beebo](https://github.com/user-attachments/assets/e22a88f2-a6b2-4c1b-af74-50337414bf00)
 
-
-
-<img width="860" height="443" alt="image" src="https://github.com/user-attachments/assets/3ed746d4-c901-431f-bf96-a62957214bb6" />
 
 
 <img width="122" height="172" alt="yeahsolike" src="https://github.com/user-attachments/assets/7fa53977-56af-41bd-923e-705740bfcbba" />
@@ -139,50 +137,30 @@ DNI/DNFI: A ASSHOLE.
 
 <img width="115" height="111" alt="pain" src="https://github.com/user-attachments/assets/adef28ee-dd97-4cd3-8480-5d5bdfe7fdc2" />
 PLEASE INTERACT IF YOU ARE A 
+
 -A ROBOT 64 OR CLEANING SIMULATOR FAN.
+
   -A TOUHOU FAN.
+
 -A GORI CUDDLY CARNAGE FAN
+
    -A UMAMUSUME FAN.
+
 -A HAT IN TIME FAN.
+
 -A RABBIDS OR RAYMAN FAN.
+
 -A IHASAFACELULZ OR PWNED BY 14 FAN.
+ 
    -A OBJECT SHOW FAN.
+
 -A ITSFUNNEH FAN.
+
 -A POKEMON FAN.
 
+![touhou-remilia-scarlet](https://github.com/user-attachments/assets/5b88b4f7-d11e-4991-b9d7-c8d45312c5a0)
 
+im also the creator of metall n friends.. a object show arg and whimiscott4 and friends and a few more i guess
 
-
-
-
-<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/e8e6bd02-6e27-4f87-b902-60dcec5cd7ab" />
-
-also i am the creator of metall and friends and a touhou arg, club penguin arg, and a object show arg and a few more
-
-
-<img width="150" height="34" alt="image" src="https://github.com/user-attachments/assets/4e426bfd-1564-4c8b-9ec8-f11141899bde" />
-
-
-go check and sign my strawpage and atabook NOW pls its so cool because im cool pls pls my gimmicks and signs are empty as a fly in a empty wallet flying away
-
-https://adriansblinkiecollection.neocities.org/stamps/b10.png
-
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/99abab44-96f6-48aa-bb44-cb049e27f74f" />
-
-im in the touhou fandom, club penguin fandom, rayman fandom, pizza tower fandom, ihasafacelulz fandom, umamusume fandom, gori cuddly carnage, and the amazing world of gumball, and more. (*^▽^*) (Im in 98 fandoms last time i counted i think)
-
-<img width="500" height="87" alt="image" src="https://github.com/user-attachments/assets/19fef29f-42e7-4333-87ba-2e02d42861c1" />
-
-
-(i have a addiction to those artists who can sing vs artists who cannot sing videos my bad)
- 
-https://github.com/user-attachments/assets/e1b68ec5-4cbb-4f43-ba70-8523798a1e80
-
-
-
-
-rayman screaming sfx
-
-
-<img width="500" height="500" alt="2678964_ebadd" src="https://github.com/user-attachments/assets/56a2a83b-5e49-4a69-be48-d3ee6dd588c0" />
+d3ee6dd588c0" />
 
