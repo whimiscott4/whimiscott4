@@ -101,34 +101,54 @@ anyways.... uhhh uhhhhh i like cartoons (clone high, uhhh uhhhhhh Garfield and s
 [ THIN ICE AND DNI/DNFI LIST. ]
 TI = Thin ice (if you are my friend or relative and you fit these thin ice categories you do not count in thin ice with interacting w/ me.)
 DNI = do not interact
+
 dnfi = do not follow if
+
 TI: FORSAKEN FANS. 
+
 TI: DW FANS., 
+
 TI:  FANS OF VIVIZEPOP'S CREATIONS. 
 TI:  FANS OF KKHTA.
+
 TI:  18+ OR 20+
+
 TI: MIKUTETO ENJOYERS.
+
 TI: CRK FAN
+
 TI: IN THE DREAM SMP FANDOM.
+
 DNI/DNFI: MAPS/PEDOS
+
 DNI/DNFI: BOYFRIENDS WEBTOON FANS.
+
 DNI/DNFI: DARKSHIPPERS OR ANYONE THAT SITS UNDER THE PROTREE.
+
 DNI/DNFI: ANY FURRY INFECTION FANS.
+
 DNI/DNFI: YBC FANS
+
 DNI/DNFI: TCOALL FANS
+
 DNI/DNFI: THE LOUD HOUSE FANS
+
+DNI/DNFI: A ASSHOLE.
+
+
+
 <img width="115" height="111" alt="pain" src="https://github.com/user-attachments/assets/adef28ee-dd97-4cd3-8480-5d5bdfe7fdc2" />
 PLEASE INTERACT IF YOU ARE A 
-- A ROBOT 64 OR CLEANING SIMULATOR FAN.
-  - A TOUHOU FAN.
-  - A GORI CUDDLY CARNAGE FAN
-  - A UMAMUSUME FAN.
-  - A HAT IN TIME FAN.
-  - A RABBIDS OR RAYMAN FAN.
-  - A IHASAFACELULZ OR PWNED BY 14 FAN.
-  - A OBJECT SHOW FAN.
-  - A ITSFUNNEH FAN.
-  - A POKEMON FAN.
+-A ROBOT 64 OR CLEANING SIMULATOR FAN.
+  -A TOUHOU FAN.
+-A GORI CUDDLY CARNAGE FAN
+   -A UMAMUSUME FAN.
+-A HAT IN TIME FAN.
+-A RABBIDS OR RAYMAN FAN.
+-A IHASAFACELULZ OR PWNED BY 14 FAN.
+   -A OBJECT SHOW FAN.
+-A ITSFUNNEH FAN.
+-A POKEMON FAN.
 
 
 
