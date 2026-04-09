@@ -161,6 +161,6 @@ PLEASE INTERACT IF YOU ARE A
 ![touhou-remilia-scarlet](https://github.com/user-attachments/assets/5b88b4f7-d11e-4991-b9d7-c8d45312c5a0)
 
 im also the creator of metall n friends.. a object show arg and whimiscott4 and friends and a few more i guess
+![touhou-rika](https://github.com/user-attachments/assets/b3ee5390-c9dc-477b-a25b-82f2621d4dac)
 
-d3ee6dd588c0" />
 
