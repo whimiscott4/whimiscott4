@@ -22,7 +22,7 @@ im whimiscott4 or ribbony or gladiolus or any name that people call me idk brah
 more on strawpage (making a new one soon!! ^___^)
 
 
-![Profile Views](https://komarev.com/ghpvc/?username=whimiscott4&color=purple)
+![Profile Views](https://komarev.com/ghpvc/?username=whimiscott4&color=blue)
 
 
 
