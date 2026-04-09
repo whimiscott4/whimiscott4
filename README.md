@@ -97,7 +97,7 @@ anyways.... uhhh uhhhhh i like cartoons (clone high, uhhh uhhhhhh Garfield and s
 <img width="194" height="81" alt="yewouch" src="https://github.com/user-attachments/assets/122aeea6-b56f-45b5-bf3f-cb1c9788144d" />
 
 [ THIN ICE AND DNI/DNFI LIST. ]
-TI = Thin ice (if you are my friend or relative and you fit these thin ice categories you do not count in thin ice with interacting w/ me.)
+TI = Thin ice (if you are my friend or relative and you fit the "thin ice" categories you do not count in thin ice with interacting w/ me.)
 DNI = do not interact
 
 dnfi = do not follow if
