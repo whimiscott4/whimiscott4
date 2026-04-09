@@ -1,8 +1,5 @@
 
-
-
-<img width="2048" height="319" alt="image" src="https://github.com/user-attachments/assets/d26449cc-1b8d-44c0-aa09-545daa370197" />
-
+<img width="720" height="200" alt="image" src="https://github.com/user-attachments/assets/8a0f07f6-00e2-4524-9dcf-608ff4b3f9a5" />
 
 
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
@@ -19,7 +16,10 @@
 
 
 
-[ _ 🎩 * ^ + 🍹  (❁´◡`❁) _ + 🎀 ]
+[ _ 🪽 * ^ + -🎀 (❁´◡`❁) _ + 🛹 ]
+hihihi
+im whimiscott4 or ribbony or gladiolus or any name that people call me idk brah
+more on strawpage (making a new one soon!! ^___^)
 
 
 ![Profile Views](https://komarev.com/ghpvc/?username=whimiscott4&color=red)
@@ -37,27 +37,39 @@
 
 
 super awesome video collection ok
-
-https://github.com/user-attachments/assets/57ea3e46-5d5a-4373-a8b3-d5aa6678e158
-
-
-
-https://github.com/user-attachments/assets/556096c2-264b-45a7-bc73-e2283eda9095
+[SOME OF THESE GETS LOUD.]
+<img width="99" height="56" alt="itsmuffintime" src="https://github.com/user-attachments/assets/afda3083-56e7-4568-902f-a8abe8df41be" />
 
 
+https://github.com/user-attachments/assets/bf52c655-7e41-423e-bc30-01d17cd64161
 
 
-https://github.com/user-attachments/assets/e25c501b-9591-4c3f-bd7f-701077665c93
+https://github.com/user-attachments/assets/123ef48b-5c81-44d1-bb67-97e23958dea2
 
 
 
-https://github.com/user-attachments/assets/1ddf0370-e297-4960-8ca9-78197adf8c9a
+https://github.com/user-attachments/assets/2f90d2a3-748f-4864-9889-38be14894ee7
+
+
+
+https://github.com/user-attachments/assets/88ad1aaa-b8a6-4ead-b506-51cb161a80c3
+
+
+
+https://github.com/user-attachments/assets/bb4b6a2c-4c73-43f9-b7ca-71b4e7c64881
+
+
+
+https://github.com/user-attachments/assets/13fa960d-3836-47f8-8c35-7231478f6ce8
+
+
+
+https://github.com/user-attachments/assets/1d7cbe4f-3acf-4072-8d18-87c1c19d4a9c
 
 
 
 
-
-https://github.com/user-attachments/assets/b5d332ff-fc99-4c22-9229-94bc06d0ec33
+https://github.com/user-attachments/assets/12e0585d-e620-49b4-b1d0-72fd31fd8c86
 
 
 
@@ -68,25 +80,60 @@ https://github.com/user-attachments/assets/b5d332ff-fc99-4c22-9229-94bc06d0ec33
 <img width="860" height="443" alt="image" src="https://github.com/user-attachments/assets/3ed746d4-c901-431f-bf96-a62957214bb6" />
 
 
+<img width="122" height="172" alt="yeahsolike" src="https://github.com/user-attachments/assets/7fa53977-56af-41bd-923e-705740bfcbba" />
+
 
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/c1dae6f2-791c-4773-b65f-d519c2c1b95f" />
 
+![wings](https://github.com/user-attachments/assets/88cc370a-e294-426a-b94f-c4f40b65f942)
+anyways.... uhhh uhhhhh i like cartoons (clone high, uhhh uhhhhhh Garfield and some more) and stuff,,, i also like robot 64.... ummausume,, touhou, gori cuddly carnage, bee swarm, a hat in time, bfdi, object shows, club penguin, rabbids, rayman, and manyy more... Im also a beebo fictionkin... a rika fictionkin (touhoiu pc98 fans plz int) and a suwako fictionkin... and a daiyousei fictionkin and a special week fictionkin!! ^ ___ ^ i dont mind with doubles interacting with me ![wings2](https://github.com/user-attachments/assets/7d26ae61-389b-4217-a3c5-ff4e244e8dbc)
+<img width="250" height="141" alt="ftm" src="https://github.com/user-attachments/assets/5e12e69d-03ba-482a-a7b1-5b558912b1b6" />
+![ILOVEMEONLINEFRIENZ](https://github.com/user-attachments/assets/5169ca18-7a95-4cef-9522-28406451e438)
+![lovefriends](https://github.com/user-attachments/assets/9e85091b-6d0b-4ea2-ad7a-98cddb92ddd7)
+![hope](https://github.com/user-attachments/assets/59555841-f462-4338-a628-709b4e54ef98)
+![sweets](https://github.com/user-attachments/assets/7f44a5c3-9099-4f7c-b3e9-3ed765cfed65)
+![toomuchmusic](https://github.com/user-attachments/assets/98f2fde5-3dce-4dd2-90a1-6d400f4d48b7)
+![kagerou-imaizumi-sekibanki](https://github.com/user-attachments/assets/b167c8f9-0e61-4516-a950-9447c9794efa)
 
-![magical](https://github.com/user-attachments/assets/332bdaa5-00bd-487c-b189-182a790fe72e)
-![Virtual Angel](https://github.com/user-attachments/assets/b16edb87-3ccd-47a3-860a-df3d7c0b5f86)
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/84512215-d2e2-44f8-9996-c4f2f7a39a35" />
-![3776500pvv0sareio](https://github.com/user-attachments/assets/f7b8174a-2e02-42f0-a39e-c6f1264590bd)
+
+<img width="194" height="81" alt="yewouch" src="https://github.com/user-attachments/assets/122aeea6-b56f-45b5-bf3f-cb1c9788144d" />
+
+[ THIN ICE AND DNI/DNFI LIST. ]
+TI = Thin ice (if you are my friend or relative and you fit these thin ice categories you do not count in thin ice with interacting w/ me.)
+DNI = do not interact
+dnfi = do not follow if
+TI: FORSAKEN FANS. 
+TI: DW FANS., 
+TI:  FANS OF VIVIZEPOP'S CREATIONS. 
+TI:  FANS OF KKHTA.
+TI:  18+ OR 20+
+TI: MIKUTETO ENJOYERS.
+TI: CRK FAN
+TI: IN THE DREAM SMP FANDOM.
+DNI/DNFI: MAPS/PEDOS
+DNI/DNFI: BOYFRIENDS WEBTOON FANS.
+DNI/DNFI: DARKSHIPPERS OR ANYONE THAT SITS UNDER THE PROTREE.
+DNI/DNFI: ANY FURRY INFECTION FANS.
+DNI/DNFI: YBC FANS
+DNI/DNFI: TCOALL FANS
+DNI/DNFI: THE LOUD HOUSE FANS
+<img width="115" height="111" alt="pain" src="https://github.com/user-attachments/assets/adef28ee-dd97-4cd3-8480-5d5bdfe7fdc2" />
+PLEASE INTERACT IF YOU ARE A 
+- A ROBOT 64 OR CLEANING SIMULATOR FAN.
+  - A TOUHOU FAN.
+  - A GORI CUDDLY CARNAGE FAN
+  - A UMAMUSUME FAN.
+  - A HAT IN TIME FAN.
+  - A RABBIDS OR RAYMAN FAN.
+  - A IHASAFACELULZ OR PWNED BY 14 FAN.
+  - A OBJECT SHOW FAN.
+  - A ITSFUNNEH FAN.
+  - A POKEMON FAN.
 
 
 
-i like skateboarding (im a beginner and i SUCK at it) and drawing n stuff(●'◡'●)
-and pixel art and animation ^ _ ^ (im a beginner and new at pixel animation) 
-im learning coding but im SHIT at it
-uh im a daiyousei, special week, hat kid, fictionkin
-please do not force me to follow you i only follow oomfs 😢 
-and a blocky selfshipper (ever since bfb just released and when i was little i think, you may know me as ribbony or something)
-hi  older sister like older cousin if you're seeing this hi     
-hi   i just came there to say pls dont show this to my older brother or the whole family 😢,, :((( pls you are my older cousin thats a big sister to me PLS : (( (people that arent my older cousin ignore this pls)
+
+
 
 <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/e8e6bd02-6e27-4f87-b902-60dcec5cd7ab" />
 
