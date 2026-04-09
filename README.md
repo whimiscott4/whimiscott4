@@ -37,7 +37,7 @@ more on strawpage (making a new one soon!! ^___^)
 
 
 super awesome video collection ok
-[SOME OF THESE GETS LOUD.]
+[SOME OF THESE GETS LOUD OR FLASHING STUFF IM WARNING YOU.]
 <img width="99" height="56" alt="itsmuffintime" src="https://github.com/user-attachments/assets/afda3083-56e7-4568-902f-a8abe8df41be" />
 
 
