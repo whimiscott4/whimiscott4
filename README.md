@@ -97,7 +97,9 @@ anyways.... uhhh uhhhhh i like cartoons (clone high, uhhh uhhhhhh Garfield and s
 <img width="194" height="81" alt="yewouch" src="https://github.com/user-attachments/assets/122aeea6-b56f-45b5-bf3f-cb1c9788144d" />
 
 [ THIN ICE AND DNI/DNFI LIST. ]
+
 TI = Thin ice (if you are my friend or relative and you fit the "thin ice" categories you do not count in thin ice with interacting w/ me.)
+
 DNI = do not interact
 
 dnfi = do not follow if
@@ -138,23 +140,33 @@ DNI/DNFI: A ASSHOLE.
 <img width="115" height="111" alt="pain" src="https://github.com/user-attachments/assets/adef28ee-dd97-4cd3-8480-5d5bdfe7fdc2" />
 PLEASE INTERACT IF YOU ARE A 
 
+
 -A ROBOT 64 OR CLEANING SIMULATOR FAN.
+
 
   -A TOUHOU FAN.
 
+
 -A GORI CUDDLY CARNAGE FAN
+
 
    -A UMAMUSUME FAN.
 
+
 -A HAT IN TIME FAN.
+
 
 -A RABBIDS OR RAYMAN FAN.
 
+
 -A IHASAFACELULZ OR PWNED BY 14 FAN.
+
  
    -A OBJECT SHOW FAN.
 
+
 -A ITSFUNNEH FAN.
+
 
 -A POKEMON FAN.
 
