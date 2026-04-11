@@ -12,7 +12,10 @@
 
 
 
-<img width="32" height="32" alt="frame_001" src="https://github.com/user-attachments/assets/cea886cd-274a-4a75-aae5-41ffc44b1e03" />
+<img width="32" height="32" alt="frame_001" src="https://github.com/user-attachments/assets/cea886cd-274a-4a75-aae5-41ffc44b1e03" 
+
+
+
 
 
 
@@ -20,6 +23,20 @@
 hihihi
 im whimiscott4 or ribbony or gladiolus or any name that people call me idk brah
 more on strawpage (making a new one soon!! ^___^)
+SOCIALS:
+https://pronouns.cc/@whimiscott4
+
+https://www.tumblr.com/whimiscott4
+
+https://whimiscott4.atabook.org/?page=1
+
+https://www.wattpad.com/user/whimiscott4
+
+https://jx1dx1ismydadokay.straw.page/
+
+https://guns.lol/whimiscott4
+
+more coming soon...
 
 
 ![Profile Views](https://komarev.com/ghpvc/?username=whimiscott4&color=blue)
