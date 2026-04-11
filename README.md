@@ -117,6 +117,8 @@ anyways.... uhhh uhhhhh i like cartoons (clone high, uhhh uhhhhhh Garfield and s
 
 TI = Thin ice 
 
+TI OR JUST IWEC: THE FREAK CRICUS FANS.
+
 (if you are my friend or relative and you fit the "thin ice" categories you do not count in thin ice with interacting w/ me.)
 
 DNI = do not interact
@@ -125,12 +127,12 @@ dnfi = do not follow if
 
 TI: FORSAKEN FANS. 
 
-TI: DW FANS., 
+TI OR IWEC: DW FANS., 
 
-TI:  FANS OF VIVIZEPOP'S CREATIONS. 
+TI AND IWEC:  FANS OF VIVIZEPOP'S CREATIONS. 
 TI:  FANS OF KKHTA.
 
-TI:  18+ OR 20+
+TI AND IWEC :  18+ OR 20+
 
 TI: MIKUTETO ENJOYERS.
 
