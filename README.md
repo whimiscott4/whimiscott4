@@ -24,6 +24,7 @@ hihihi
 im whimiscott4 or ribbony or gladiolus or any name that people call me idk brah
 more on strawpage (making a new one soon!! ^___^)
 SOCIALS:
+
 https://pronouns.cc/@whimiscott4
 
 https://www.tumblr.com/whimiscott4
@@ -115,7 +116,9 @@ anyways.... uhhh uhhhhh i like cartoons (clone high, uhhh uhhhhhh Garfield and s
 
 [ THIN ICE AND DNI/DNFI LIST. ]
 
-TI = Thin ice (if you are my friend or relative and you fit the "thin ice" categories you do not count in thin ice with interacting w/ me.)
+TI = Thin ice 
+
+(if you are my friend or relative and you fit the "thin ice" categories you do not count in thin ice with interacting w/ me.)
 
 DNI = do not interact
 
@@ -135,6 +138,9 @@ TI: MIKUTETO ENJOYERS.
 TI: CRK FAN
 
 TI: IN THE DREAM SMP FANDOM.
+
+TI: A YANDERE SIMULATOR FAN.
+
 
 DNI/DNFI: MAPS/PEDOS
 
@@ -158,7 +164,9 @@ DNI/DNFI: A ASSHOLE.
 PLEASE INTERACT IF YOU ARE A 
 
 
+
 -A ROBOT 64 OR CLEANING SIMULATOR FAN.
+
 
 
   -A TOUHOU FAN.
