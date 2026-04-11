@@ -12,9 +12,6 @@
 
 
 
-<img width="32" height="32" alt="frame_001" src="https://github.com/user-attachments/assets/cea886cd-274a-4a75-aae5-41ffc44b1e03" 
-
-
 
 
 
