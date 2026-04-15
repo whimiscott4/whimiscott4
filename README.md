@@ -38,6 +38,8 @@ https://guns.lol/whimiscott4
 
 https://r2.whiteboardfox.com/gallery/@Whimiscott4
 
+https://en.pronouns.page/@whimiscott4
+
 more coming soon...
 
 
