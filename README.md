@@ -40,6 +40,8 @@ https://r2.whiteboardfox.com/gallery/@Whimiscott4
 
 https://en.pronouns.page/@whimiscott4
 
+https://bsky.app/profile/whimiscott4.bsky.social
+
 more coming soon...
 
 
