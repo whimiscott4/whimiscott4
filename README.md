@@ -8,7 +8,7 @@
 
 
 
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/f2edd0a5-2ccd-40ac-a4b9-751e17dbbdc9" /> (questioning if ftm or girlflux)
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/f2edd0a5-2ccd-40ac-a4b9-751e17dbbdc9" /> (questioning if ftm)
 
 
 
