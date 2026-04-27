@@ -192,6 +192,8 @@ DNI/DNFI: ANY FURRY INFECTION FANS.
 
 DNI/DNFI: PEOPLE THAT ROMACTIZE AUTISM OR HAVE "everyone's a bit autistic" HUMOR.
 
+DNI/DNFI: AI BROS
+
 DNI/DNFI: BIGOTS (racist, homophobic, transphobic, etc)
 
 DNI/DNFI: YBC FANS
