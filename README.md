@@ -1,3 +1,4 @@
+<img width="99" height="56" alt="thisissparrtaa" src="https://github.com/user-attachments/assets/36954d5f-19cc-412b-b5b6-06cc2a8a8e95" />
 
 <img width="400" height="200" alt="marioframedivider" src="https://github.com/user-attachments/assets/5bbe2990-59b4-4ed6-a73a-0729273e7859" />
 
@@ -56,7 +57,7 @@ more coming soon...
 
 super awesome video collection ok
 [SOME OF THESE GETS LOUD OR FLASHING STUFF IM WARNING YOU.]
-
+<img width="99" height="56" alt="thisissparrtaa" src="https://github.com/user-attachments/assets/c04f7668-9862-4f65-bc04-3559faea8031" />
 
 
 
