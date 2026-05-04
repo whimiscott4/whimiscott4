@@ -152,9 +152,11 @@ anyways.... uhhh uhhhhh i like cartoons (clone high, uhhh uhhhhhh Garfield and s
 ![ILOVEMEONLINEFRIENZ](https://github.com/user-attachments/assets/5169ca18-7a95-4cef-9522-28406451e438)
 ![lovefriends](https://github.com/user-attachments/assets/9e85091b-6d0b-4ea2-ad7a-98cddb92ddd7)
 <img width="150" height="20" alt="Screenshot 2026-05-04 172653" src="https://github.com/user-attachments/assets/5cc3a4c2-5238-4a09-b81e-d0f64158831c" />
+<img width="150" height="20" alt="parappa" src="https://github.com/user-attachments/assets/4c2eb7b7-645f-46ac-b153-3899ce96bd39" />
 <img width="150" height="20" alt="clonehigh" src="https://github.com/user-attachments/assets/0b796b6b-0754-4e7f-a30f-4a0892d9b026" />
+
+
 <img width="194" height="81" alt="yewouch" src="https://github.com/user-attachments/assets/122aeea6-b56f-45b5-bf3f-cb1c9788144d" />
-<img width="150" height="20" alt="parappa" src="https://github.com/user-attachments/assets/36b4ba85-f7c1-45dd-8263-e8bfd502e4ff" />
 
 [ THIN ICE AND DNI/DNFI LIST. ]
 
