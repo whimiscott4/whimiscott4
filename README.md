@@ -61,15 +61,21 @@ super awesome video collection ok
 
 
 
-https://github.com/user-attachments/assets/9945ccda-881d-4648-bc42-e6566975d839
+
+https://github.com/user-attachments/assets/3d32fe1f-fb88-4dcc-b2bc-1ff183b21fc0
 
 
 
-https://github.com/user-attachments/assets/37fc77eb-5191-4b2a-a378-b6d7a033ca16
 
 
 
-https://github.com/user-attachments/assets/1a9a7a9e-99cd-4734-8949-a8c0aef9752f
+https://github.com/user-attachments/assets/f062051f-80ad-48ed-b1a9-ac650e71c902
+
+
+
+
+https://github.com/user-attachments/assets/807184f6-118d-43b1-8287-2926cfc3a1ba
+
 
 
 
@@ -81,9 +87,7 @@ https://github.com/user-attachments/assets/0811a054-84f7-42fe-bd81-952d86307eef
 https://github.com/user-attachments/assets/1c1a7f87-7a58-491a-b01c-9ee9315381c8
 
 
-
-
-https://github.com/user-attachments/assets/384585e3-edca-4a47-bb36-714f29f2d533
+https://github.com/user-attachments/assets/8bd69051-16e8-4d81-8a13-5eb7c9b65c96
 
 
 
@@ -95,8 +99,7 @@ https://github.com/user-attachments/assets/2f90d2a3-748f-4864-9889-38be14894ee7
 https://github.com/user-attachments/assets/88ad1aaa-b8a6-4ead-b506-51cb161a80c3
 
 
-
-https://github.com/user-attachments/assets/bb4b6a2c-4c73-43f9-b7ca-71b4e7c64881
+https://github.com/user-attachments/assets/6caf60c8-9b99-4989-be2c-4bbb53af35f7
 
 
 
@@ -104,7 +107,18 @@ https://github.com/user-attachments/assets/13fa960d-3836-47f8-8c35-7231478f6ce8
 
 
 
-https://github.com/user-attachments/assets/1d7cbe4f-3acf-4072-8d18-87c1c19d4a9c
+
+https://github.com/user-attachments/assets/0458f596-b648-4c76-973a-7ea3edf3cb9a
+
+
+
+https://github.com/user-attachments/assets/d52efa9c-4c9c-4c95-b5c7-35807640711d
+
+
+
+https://github.com/user-attachments/assets/83023ede-8d9a-4ed2-8383-9addf0b69e7b
+
+
 
 
 
@@ -128,8 +142,10 @@ anyways.... uhhh uhhhhh i like cartoons (clone high, uhhh uhhhhhh Garfield and s
 <img width="250" height="141" alt="ftm" src="https://github.com/user-attachments/assets/5e12e69d-03ba-482a-a7b1-5b558912b1b6" />
 ![ILOVEMEONLINEFRIENZ](https://github.com/user-attachments/assets/5169ca18-7a95-4cef-9522-28406451e438)
 ![lovefriends](https://github.com/user-attachments/assets/9e85091b-6d0b-4ea2-ad7a-98cddb92ddd7)
-![hope](https://github.com/user-attachments/assets/59555841-f462-4338-a628-709b4e54ef98)
-![sweets](https://github.com/user-attachments/assets/7f44a5c3-9099-4f7c-b3e9-3ed765cfed65)
+<img width="150" height="20" alt="Screenshot 2026-05-04 172653" src="https://github.com/user-attachments/assets/5cc3a4c2-5238-4a09-b81e-d0f64158831c" />
+<img width="150" height="20" alt="clonehigh" src="https://github.com/user-attachments/assets/0b796b6b-0754-4e7f-a30f-4a0892d9b026" />
+<img width="500" height="127" alt="transmasc" src="https://github.com/user-attachments/assets/31aa4496-9c83-4b8f-b1af-58865063aae6" />
+
 ![toomuchmusic](https://github.com/user-attachments/assets/98f2fde5-3dce-4dd2-90a1-6d400f4d48b7)
 ![kagerou-imaizumi-sekibanki](https://github.com/user-attachments/assets/b167c8f9-0e61-4516-a950-9447c9794efa)
 
