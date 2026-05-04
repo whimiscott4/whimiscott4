@@ -1,5 +1,5 @@
 
-<img width="150" height="50" alt="marioframedivider" src="https://github.com/user-attachments/assets/5bbe2990-59b4-4ed6-a73a-0729273e7859" />
+<img width="200" height="150" alt="marioframedivider" src="https://github.com/user-attachments/assets/5bbe2990-59b4-4ed6-a73a-0729273e7859" />
 
 
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
