@@ -144,14 +144,16 @@ https://github.com/user-attachments/assets/12e0585d-e620-49b4-b1d0-72fd31fd8c86
 
 
 anyways.... uhhh uhhhhh i like cartoons (clone high, uhhh uhhhhhh Garfield and some more) and stuff,,, i also like robot 64.... ummausume,, touhou, gori cuddly carnage, bee swarm, a hat in time, bfdi, object shows, club penguin, rabbids, rayman, and manyy more... also jx1dx1 is my dad im not joking
-<img width="150" height="20" alt="youfoundlostmedia" src="https://github.com/user-attachments/assets/b21dc368-5887-45fd-91e2-6623eb7deb88" />
+
+
+<img width="150" height="90" alt="youfoundlostmedia" src="https://github.com/user-attachments/assets/b21dc368-5887-45fd-91e2-6623eb7deb88" />
 <img width="99" height="56" alt="thisissparrtaa" src="https://github.com/user-attachments/assets/014c785d-4c83-4d29-8f0a-419fd4d8f07e" />
 
 ![ILOVEMEONLINEFRIENZ](https://github.com/user-attachments/assets/5169ca18-7a95-4cef-9522-28406451e438)
 ![lovefriends](https://github.com/user-attachments/assets/9e85091b-6d0b-4ea2-ad7a-98cddb92ddd7)
 <img width="150" height="20" alt="Screenshot 2026-05-04 172653" src="https://github.com/user-attachments/assets/5cc3a4c2-5238-4a09-b81e-d0f64158831c" />
 <img width="150" height="20" alt="clonehigh" src="https://github.com/user-attachments/assets/0b796b6b-0754-4e7f-a30f-4a0892d9b026" />
-<img width="500" height="127" alt="transmasc" src="https://github.com/user-attachments/assets/31aa4496-9c83-4b8f-b1af-58865063aae6" />
+<img width="150" height="90" alt="transmasc" src="https://github.com/user-attachments/assets/31aa4496-9c83-4b8f-b1af-58865063aae6" />
 
 ![toomuchmusic](https://github.com/user-attachments/assets/98f2fde5-3dce-4dd2-90a1-6d400f4d48b7)
 ![kagerou-imaizumi-sekibanki](https://github.com/user-attachments/assets/b167c8f9-0e61-4516-a950-9447c9794efa)
