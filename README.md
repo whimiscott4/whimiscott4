@@ -1,7 +1,5 @@
 
-
-
-<img width="720" height="200" alt="image" src="https://github.com/user-attachments/assets/8a0f07f6-00e2-4524-9dcf-608ff4b3f9a5" />
+<img width="150" height="50" alt="marioframedivider" src="https://github.com/user-attachments/assets/5bbe2990-59b4-4ed6-a73a-0729273e7859" />
 
 
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
@@ -10,16 +8,14 @@
 
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/f2edd0a5-2ccd-40ac-a4b9-751e17dbbdc9" /> 
 
+<img width="122" height="122" alt="hi" src="https://github.com/user-attachments/assets/610f1e93-15ac-41cb-b219-85a7210d909c" />
+
+ [ - + ^ 📁 - ^ _ ^ 🍁 . > < 🪼 ¬ 🏁 ] ~ （*＾-＾*）
 
 
 
-
-
-
-
-[ _ 🪽 * ^ + -🎀 (❁´◡`❁) _ + 🛹 ]
 hihihi
-im whimiscott4 or ribbony or gladiolus or any name that people call me idk brah
+im whimiscott4 or ribbony or gladiolus or any name that people call me idk brah. . .
 more on strawpage (making a new one soon!! ^___^)
 SOCIALS:
 
@@ -44,7 +40,7 @@ https://bsky.app/profile/whimiscott4.bsky.social
 more coming soon...
 
 
-![puffles!](https://komarev.com/ghpvc/?username=whimiscott4&color=blue)
+![puffles!](https://komarev.com/ghpvc/?username=whimiscott4&color=red)
 
 
 
@@ -60,10 +56,8 @@ more coming soon...
 
 super awesome video collection ok
 [SOME OF THESE GETS LOUD OR FLASHING STUFF IM WARNING YOU.]
-<img width="99" height="56" alt="itsmuffintime" src="https://github.com/user-attachments/assets/afda3083-56e7-4568-902f-a8abe8df41be" />
 
 
-https://github.com/user-attachments/assets/bf52c655-7e41-423e-bc30-01d17cd64161
 
 
 
