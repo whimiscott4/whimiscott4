@@ -191,6 +191,7 @@ TI: IN THE DREAM SMP FANDOM.
 
 TI: A YANDERE SIMULATOR FAN.
 
+TI: OVERLY SENSITIVE/INSENSITIVE PEOPLE. (this dose NOT count people who are sensitive because of trauma, disabilities, etc)
 
 DNI/DNFI: MAPS/PEDOS
 
