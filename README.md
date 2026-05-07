@@ -6,9 +6,6 @@
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
 
 
-
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/f2edd0a5-2ccd-40ac-a4b9-751e17dbbdc9" /> 
-
 <img width="122" height="122" alt="hi" src="https://github.com/user-attachments/assets/610f1e93-15ac-41cb-b219-85a7210d909c" />
 
  [ - + ^ 📁 - ^ _ ^ 🍁 . > < 🪼 ¬ 🏁 ] ~ （*＾-＾*）
