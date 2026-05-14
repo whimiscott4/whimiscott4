@@ -174,7 +174,6 @@ TI OR IWEC: DW FANS.,
 
 TI: "WHOS THAT DIVAAAA💜" humor people
 
-TI: "s1lly c4rz :3" humor people
 
 TI AND IWEC:  FANS OF VIVIZEPOP'S CREATIONS. 
 
