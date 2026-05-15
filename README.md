@@ -117,7 +117,7 @@ https://github.com/user-attachments/assets/c50296dd-4e36-4f7e-a56a-0e01a99d7438
 
 
 
-i made ts
+i made this shit, also this is for shits and giggles do not jump me I beg you.
 v
 v
 v
