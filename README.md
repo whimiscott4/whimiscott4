@@ -17,7 +17,6 @@ im whimiscott4 or ribbony or gladiolus or any name that people call me idk brah.
 more on strawpage (making a new one soon!! ^___^)
 SOCIALS:
 
-https://pronouns.cc/@whimiscott4
 
 https://www.tumblr.com/whimiscott4
 
@@ -30,8 +29,6 @@ https://jx1dx1ismydadokay.straw.page/
 https://guns.lol/whimiscott4
 
 https://r2.whiteboardfox.com/gallery/@Whimiscott4
-
-https://en.pronouns.page/@whimiscott4
 
 https://bsky.app/profile/whimiscott4.bsky.social
 
