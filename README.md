@@ -34,8 +34,7 @@ https://bsky.app/profile/whimiscott4.bsky.social
 
 more coming soon...
 
-![puffles!](https://komarev.com/ghpvc/?username=your-github-username&label=PROFILE+VIEWS)
-
+![Profile Views](https://komarev.com/ghpvc/?username=your-github-username&style=flat-square)
 
 
 
