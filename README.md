@@ -17,6 +17,7 @@ im whimiscott4 or ribbony or gladiolus or any name that people call me idk brah.
 more on strawpage (making a new one soon!! ^___^)
 SOCIALS:
 
+https://www.friendproject.net/view_profile.php?member_id=370009
 
 https://www.tumblr.com/whimiscott4
 
