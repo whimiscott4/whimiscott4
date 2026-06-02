@@ -10,7 +10,8 @@
 
  [ - + ^ 📁 - ^ _ ^ 🍁 . > < 🪼 ¬ 🏁 ] ~ （*＾-＾*）
 
- <div class="tenor-gif-embed" data-postid="3389581868318809349" data-share-method="host" data-aspect-ratio="1.33333" data-width="100%"><a href="https://tenor.com/view/hello-neighbor-hello-neighbor-meme-hello-neighbor-like-subscribe-hello-neighbor-like-and-subscribe-like-and-subscribe-gif-3389581868318809349">Hello Neighbor Hello Neighbor Meme Sticker</a>from <a href="https://tenor.com/search/hello+neighbor-stickers">Hello Neighbor Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+
+<img width="320" height="240" alt="hahahahaha" src="https://github.com/user-attachments/assets/690c430a-8803-4e26-b89b-7d2d6c08eb79" />
 
 
 
