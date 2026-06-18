@@ -134,12 +134,8 @@ https://github.com/user-attachments/assets/662cca25-7480-47af-a147-47f910effa31
 
 
 
+https://github.com/user-attachments/assets/216e36d7-95ef-41e0-a824-c4cdea406c8f
 
-Uploading Download - 2026-06-18T221347.175.mp4…
-
-
-
-https://github.com/user-attachments/assets/1f8b32aa-72db-4ad8-b485-e8606d2f2d54
 
 
 
