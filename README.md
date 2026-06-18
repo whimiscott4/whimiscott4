@@ -139,12 +139,13 @@ https://github.com/user-attachments/assets/67ce4680-8e08-40e2-bf31-fc6f48c9954b
 
 
 
-https://github.com/user-attachments/assets/12e0585d-e620-49b4-b1d0-72fd31fd8c86
+
+https://github.com/user-attachments/assets/1f8b32aa-72db-4ad8-b485-e8606d2f2d54
 
 
 
 
-![robot64-beebo](https://github.com/user-attachments/assets/e22a88f2-a6b2-4c1b-af74-50337414bf00)
+<img width="516" height="640" alt="dancebrah" src="https://github.com/user-attachments/assets/49f2974b-529b-4a0a-88af-d7d24ae06ec7" />
 
 
 
