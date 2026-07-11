@@ -16,7 +16,9 @@
 ⊱ ────── {.⋅ ♫ ⋅.} ─────
 
 
-ᛝㅤ𝓝ᥲme: whimiscott4 ✦  𝓐ge: not fucking telling
+ᛝㅤ𝓝ᥲme: whimiscott4 ✦  
+
+𝓐ge: not fucking telling
 
 𓎟𓎟  he - him - his - any (except for she/her)  ˚. 🍎 ᵎᵎ  𓎟
 
