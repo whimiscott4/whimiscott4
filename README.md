@@ -6,9 +6,6 @@
 <img width="500" height="27" alt="rednwhite" src="https://github.com/user-attachments/assets/a9ba1d11-bd50-43ab-905c-c767e7814b8e" />
 
 
-<img width="400" height="400" alt="window" src="https://github.com/user-attachments/assets/e4ac9d58-9160-4e99-81e7-11897048a456" />
-c6ebb5bd8da" /><img width="2048" height="177" alt="pretty" src="https://github.com/user-attachments/assets/2ea3d545-92b5-4645-941c-069433dcc045" />
-
 
 
 
