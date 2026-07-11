@@ -5,14 +5,7 @@
 <img width="400" height="400" alt="window" src="https://github.com/user-attachments/assets/e4ac9d58-9160-4e99-81e7-11897048a456" />
 
 
-<img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
 
-
-<img width="122" height="122" alt="hi" src="https://github.com/user-attachments/assets/610f1e93-15ac-41cb-b219-85a7210d909c" />
-
-
-
-<img width="320" height="240" alt="hahahahaha" src="https://github.com/user-attachments/assets/690c430a-8803-4e26-b89b-7d2d6c08eb79" />
 ════════════════════
 
 ᥣᥒ𝗍r᥆! 
