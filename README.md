@@ -1,6 +1,8 @@
 
 
-<img width="400" height="200" alt="marioframedivider" src="https://github.com/user-attachments/assets/5bbe2990-59b4-4ed6-a73a-0729273e7859" />
+<img width="250" height="63" alt="red and white" src="https://github.com/user-attachments/assets/000e239f-2077-4877-93f2-bc6ebb5bd8da" />
+
+<img width="400" height="400" alt="window" src="https://github.com/user-attachments/assets/e4ac9d58-9160-4e99-81e7-11897048a456" />
 
 
 <img width="350" height="20" alt="image" src="https://github.com/user-attachments/assets/e73b852f-2135-4bc2-88b0-3bd59b6aa424" />
@@ -8,17 +10,34 @@
 
 <img width="122" height="122" alt="hi" src="https://github.com/user-attachments/assets/610f1e93-15ac-41cb-b219-85a7210d909c" />
 
- [ - + ^ 📁 - ^ _ ^ 🍁 . > < 🪼 ¬ 🏁 ] ~ （*＾-＾*）
 
 
 <img width="320" height="240" alt="hahahahaha" src="https://github.com/user-attachments/assets/690c430a-8803-4e26-b89b-7d2d6c08eb79" />
+════════════════════
+
+ᥣᥒ𝗍r᥆! 
+════════════════════
 
 
+‎ـــــــــــــــــــﮩ٨ـ
+⊱ ────── {.⋅ ♫ ⋅.} ─────
+ᛝㅤ𝓝ᥲme: whimiscott4 ✦  𝓐ge: not fucking telling
+𓎟𓎟  he - him - his - any (except for she/her)  ˚. 🍎 ᵎᵎ  𓎟
+𓏵　𓈒 my personailty and behaviour are really fluid, it depends on who im talking to tbh, theres not that much about me.　𓏵
 
-hihihi
-im whimiscott4 or ribbony or gladiolus or any name that people call me idk brah. . .
-more on strawpage (making a new one soon!! ^___^)
-SOCIALS:
+‎ـــــــــــــــــــﮩ٨ـ
+
+   ۪ ࣪   ָ   𖦹   ۪   ࣪   ִ      𝇃𝇂    ˒ ˓
+
+
+<img width="47" height="44" alt="musicbox" src="https://github.com/user-attachments/assets/0e09c79a-afa9-4f3e-a8f6-7253bdaad345" />
+
+︶︶︶︶︶︶︶︶︶︶︶︶
+
+s᥆ᥴіᥲᥣs :
+
+︶︶︶︶︶︶︶︶︶︶︶︶
+
 
 https://www.friendproject.net/view_profile.php?member_id=370009
 
@@ -37,6 +56,7 @@ https://r2.whiteboardfox.com/gallery/@Whimiscott4
 https://bsky.app/profile/whimiscott4.bsky.social
 
 more coming soon...
+
 
 
 
@@ -148,17 +168,12 @@ https://github.com/user-attachments/assets/216e36d7-95ef-41e0-a824-c4cdea406c8f
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/c1dae6f2-791c-4773-b65f-d519c2c1b95f" />
 
 
-anyways.... uhhh uhhhhh i like cartoons (clone high, uhhh uhhhhhh Garfield and some more) and stuff,,, i also like robot 64.... ummausume,, touhou, gori cuddly carnage, bee swarm, a hat in time, bfdi, object shows, club penguin, rabbids, rayman, and manyy more... also jx1dx1 is my dad im not joking
 
 
 <img width="150" height="90" alt="youfoundlostmedia" src="https://github.com/user-attachments/assets/b21dc368-5887-45fd-91e2-6623eb7deb88" />
 <img width="99" height="56" alt="thisissparrtaa" src="https://github.com/user-attachments/assets/014c785d-4c83-4d29-8f0a-419fd4d8f07e" />
 
-![ILOVEMEONLINEFRIENZ](https://github.com/user-attachments/assets/5169ca18-7a95-4cef-9522-28406451e438)
-![lovefriends](https://github.com/user-attachments/assets/9e85091b-6d0b-4ea2-ad7a-98cddb92ddd7)
-<img width="150" height="20" alt="Screenshot 2026-05-04 172653" src="https://github.com/user-attachments/assets/5cc3a4c2-5238-4a09-b81e-d0f64158831c" />
-<img width="150" height="20" alt="parappa" src="https://github.com/user-attachments/assets/4c2eb7b7-645f-46ac-b153-3899ce96bd39" />
-<img width="150" height="20" alt="clonehigh" src="https://github.com/user-attachments/assets/0b796b6b-0754-4e7f-a30f-4a0892d9b026" />
+
 
 
 <img width="194" height="81" alt="yewouch" src="https://github.com/user-attachments/assets/122aeea6-b56f-45b5-bf3f-cb1c9788144d" />
