@@ -8,7 +8,7 @@
 
 <img width="400" height="400" alt="window" src="https://github.com/user-attachments/assets/e4ac9d58-9160-4e99-81e7-11897048a456" />
 c6ebb5bd8da" /><img width="2048" height="177" alt="pretty" src="https://github.com/user-attachments/assets/2ea3d545-92b5-4645-941c-069433dcc045" />
-<img width="500" height="239" alt="frutiger metro wallpaper" src="https://github.com/user-attachments/assets/07f1e09c-a4cd-4b3d-9d7e-61ec8a19a374" />
+
 
 
 
