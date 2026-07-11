@@ -1,11 +1,13 @@
 
 
-<img width="700" height="80" alt="red and white" src="https://github.com/user-attachments/assets/000e239f-2077-4877-93f2-bc6ebb5bd8da" />
-<img width="600" height="120" alt="song" src="https://github.com/user-attachments/assets/94e9302f-de92-490f-bc6c-e25725708401" />
+<img width="700" height="80" alt="red and white" src="https://github.com/user-attachments/assets/000e239f-2077-4877-93f2-b
 <img width="500" height="27" alt="rednwhite" src="https://github.com/user-attachments/assets/a9ba1d11-bd50-43ab-905c-c767e7814b8e" />
 
 
 <img width="400" height="400" alt="window" src="https://github.com/user-attachments/assets/e4ac9d58-9160-4e99-81e7-11897048a456" />
+c6ebb5bd8da" /><img width="2048" height="177" alt="pretty" src="https://github.com/user-attachments/assets/2ea3d545-92b5-4645-941c-069433dcc045" />
+<img width="500" height="239" alt="frutiger metro wallpaper" src="https://github.com/user-attachments/assets/07f1e09c-a4cd-4b3d-9d7e-61ec8a19a374" />
+
 
 
 
