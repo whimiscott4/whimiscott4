@@ -1,6 +1,9 @@
 
 
 <img width="700" height="80" alt="red and white" src="https://github.com/user-attachments/assets/000e239f-2077-4877-93f2-bc6ebb5bd8da" />
+<img width="600" height="120" alt="song" src="https://github.com/user-attachments/assets/94e9302f-de92-490f-bc6c-e25725708401" />
+<img width="500" height="27" alt="rednwhite" src="https://github.com/user-attachments/assets/a9ba1d11-bd50-43ab-905c-c767e7814b8e" />
+
 
 <img width="400" height="400" alt="window" src="https://github.com/user-attachments/assets/e4ac9d58-9160-4e99-81e7-11897048a456" />
 
