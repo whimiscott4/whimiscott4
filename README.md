@@ -1,6 +1,6 @@
 
 
-<img width="250" height="63" alt="red and white" src="https://github.com/user-attachments/assets/ade2511d-ca57-4089-b60b-3a9540d75f6b" />
+<img width="700" height="250" alt="red and white" src="https://github.com/user-attachments/assets/ade2511d-ca57-4089-b60b-3a9540d75f6b" />
 
 
 <img width="500" height="27" alt="rednwhite" src="https://github.com/user-attachments/assets/a9ba1d11-bd50-43ab-905c-c767e7814b8e" />
