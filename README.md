@@ -14,9 +14,14 @@
 
 ‎ـــــــــــــــــــﮩ٨ـ
 ⊱ ────── {.⋅ ♫ ⋅.} ─────
+
+
 ᛝㅤ𝓝ᥲme: whimiscott4 ✦  𝓐ge: not fucking telling
+
 𓎟𓎟  he - him - his - any (except for she/her)  ˚. 🍎 ᵎᵎ  𓎟
+
 𓏵　𓈒 my personailty and behaviour are really fluid, it depends on who im talking to tbh, theres not that much about me.　𓏵
+
 
 ‎ـــــــــــــــــــﮩ٨ـ
 
@@ -53,17 +58,18 @@ more coming soon...
 
 
 
-![profile views](https://komarev.com/ghpvc/?username=whimiscott4&color=blue)
+![profile views](https://komarev.com/ghpvc/?username=whimiscott4&color=red)
 
 
 
 
 
 
-
+︶︶︶︶︶︶︶︶︶︶︶︶
 super awesome video collection ok
 [SOME OF THESE GETS LOUD OR FLASHING STUFF IM WARNING YOU.]
-<img width="99" height="56" alt="thisissparrtaa" src="https://github.com/user-attachments/assets/c04f7668-9862-4f65-bc04-3559faea8031" />
+
+︶︶︶︶︶︶︶︶︶︶︶︶
 
 
 
@@ -81,6 +87,10 @@ https://github.com/user-attachments/assets/00be4c69-eb41-49c4-954e-021b55ebbe00
 https://github.com/user-attachments/assets/f062051f-80ad-48ed-b1a9-ac650e71c902
 
 
+
+
+
+https://github.com/user-attachments/assets/0926d8c8-ecd1-40a3-aad4-709a5d819bfb
 
 
 
