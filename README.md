@@ -59,11 +59,9 @@ https://r2.whiteboardfox.com/gallery/@Whimiscott4
 
 https://bsky.app/profile/whimiscott4.bsky.social
 
-more coming soon...
+more coming soon...!
 
-
-![](https://komarev . com/ghpvc/?username=whimiscott4&color=red&label=cool+inklings+and+octolings&style=for-the-badge)
-
+[](https://komarev.com/ghpvc/?username=whimiscott4&label=inklings+and+octolings)
 
 
 ︶︶︶︶︶︶︶︶︶︶︶︶
