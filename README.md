@@ -62,9 +62,7 @@ https://bsky.app/profile/whimiscott4.bsky.social
 more coming soon...
 
 
-
-![](https://komarev.com/ghpvc/?username=your-github-username&color=b12929)
-
+![](https://komarev . com/ghpvc/?username=whimiscott4&color=red&label=cool inklings and octolings&style=for-the-badge)
 
 
 
