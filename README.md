@@ -61,7 +61,9 @@ https://bsky.app/profile/whimiscott4.bsky.social
 
 more coming soon...!
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=red)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=whimiscott4)
+
+
 
 ︶︶︶︶︶︶︶︶︶︶︶︶
 super awesome video collection ok
