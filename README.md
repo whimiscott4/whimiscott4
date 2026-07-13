@@ -176,6 +176,10 @@ https://github.com/user-attachments/assets/216e36d7-95ef-41e0-a824-c4cdea406c8f
 
 <img width="194" height="81" alt="yewouch" src="https://github.com/user-attachments/assets/122aeea6-b56f-45b5-bf3f-cb1c9788144d" />
 
+
+
+
+
 [ THIN ICE AND DNI/DNFI LIST. ]
 
 TI = Thin ice 
