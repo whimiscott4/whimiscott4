@@ -162,19 +162,14 @@ https://github.com/user-attachments/assets/216e36d7-95ef-41e0-a824-c4cdea406c8f
 
 <img width="736" height="150" alt="34902965859500500" src="https://github.com/user-attachments/assets/209f63a7-0282-4691-8cc2-3fea0a501b16" />
 <img width="736" height="152" alt="#userboxes #text #words" src="https://github.com/user-attachments/assets/a58ebf46-75ca-4c76-9dc9-dcf0aa89e92c" />
-<img width="99" height="56" alt="GETMEOUTOFTHISSTAMP" src="https://github.com/user-attachments/assets/0ee8fd82-1889-4a90-9bf2-2b4377541be9" />
+<img width="99" height="56" alt="GETMEOUTOFTHISSTAMP" src="https://github.com/user-attachments/assets/0ee8fd82-1889-4a90-9bf2-2b4377541be9">
+
+
+<img width="150" height="90" alt="youfoundlostmedia" src="https://github.com/user-attachments/assets/b21dc368-5887-45fd-91e2-6623eb7deb88" />
 
 <img width="400" height="142" alt="blackandgreydown" src="https://github.com/user-attachments/assets/a34e1430-ddd5-4244-8372-fb71fd463a27" />
 
 
-
-
-
-
-
-
-<img width="150" height="90" alt="youfoundlostmedia" src="https://github.com/user-attachments/assets/b21dc368-5887-45fd-91e2-6623eb7deb88" />
-<img width="99" height="56" alt="thisissparrtaa" src="https://github.com/user-attachments/assets/014c785d-4c83-4d29-8f0a-419fd4d8f07e" />
 
 
 
