@@ -158,17 +158,17 @@ https://github.com/user-attachments/assets/662cca25-7480-47af-a147-47f910effa31
 https://github.com/user-attachments/assets/216e36d7-95ef-41e0-a824-c4cdea406c8f
 
 
+<img width="400" height="142" alt="black and grey" src="https://github.com/user-attachments/assets/cdd83eaa-d40f-4d65-b310-043e60e24b3a" />
+
+<img width="736" height="150" alt="34902965859500500" src="https://github.com/user-attachments/assets/209f63a7-0282-4691-8cc2-3fea0a501b16" />
+<img width="736" height="152" alt="#userboxes #text #words" src="https://github.com/user-attachments/assets/a58ebf46-75ca-4c76-9dc9-dcf0aa89e92c" />
+<img width="99" height="56" alt="GETMEOUTOFTHISSTAMP" src="https://github.com/user-attachments/assets/0ee8fd82-1889-4a90-9bf2-2b4377541be9" />
+
+<img width="400" height="142" alt="blackandgreydown" src="https://github.com/user-attachments/assets/a34e1430-ddd5-4244-8372-fb71fd463a27" />
 
 
 
-<img width="516" height="640" alt="dancebrah" src="https://github.com/user-attachments/assets/49f2974b-529b-4a0a-88af-d7d24ae06ec7" />
 
-
-
-<img width="122" height="172" alt="yeahsolike" src="https://github.com/user-attachments/assets/7fa53977-56af-41bd-923e-705740bfcbba" />
-
-
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/c1dae6f2-791c-4773-b65f-d519c2c1b95f" />
 
 
 
