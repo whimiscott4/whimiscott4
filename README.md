@@ -43,7 +43,7 @@ i use he/him/any except for she/her
 
 
 
-there's really not much anything about myself tbh, my behaviour is fluid however i can be somewhat harsh to others (not really all the time but it depends, i try to be friendly to others, apologies if i may have lashed out on you before though.)<img width="99" height="56" alt="AHHHHHHHHH" src="https://github.com/user-attachments/assets/0f00abaa-c68f-4cc9-9434-52b4291aa032" />
+there's really not much anything about myself tbh, my behaviour is fluid however i can be somewhat harsh to others (not really all the time but it depends, i try to be friendly to others, apologies if i may have lashed out on you before though.)
 
 
 ‎ـــــــــــــــــــﮩ٨ـ
