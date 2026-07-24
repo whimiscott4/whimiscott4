@@ -311,6 +311,3 @@ PLEASE INTERACT IF YOU ARE A
 
 <img width="500" height="432" alt="4433299630563223" src="https://github.com/user-attachments/assets/489cc72b-d686-4242-aeea-fcdebda2d67d" />
 
-
-<img width="1280" height="913" alt="orange" src="https://github.com/user-attachments/assets/6383e8ec-ebde-481c-81d1-c3da9d643c85" />
-<img width="1280" height="913" alt="orange" src="https://github.com/user-attachments/assets/a67228a4-8cd3-491e-ab82-785c725bffdc" />
