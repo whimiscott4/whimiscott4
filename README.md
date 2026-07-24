@@ -1,46 +1,65 @@
 
 
-<img width="700" height="250" alt="red and white" src="https://github.com/user-attachments/assets/ade2511d-ca57-4089-b60b-3a9540d75f6b" />
 
-
-<img width="500" height="27" alt="rednwhite" src="https://github.com/user-attachments/assets/a9ba1d11-bd50-43ab-905c-c767e7814b8e" />
-
+<img width="600" height="400" alt="675328906669057122" src="https://github.com/user-attachments/assets/eaab89fa-4aa6-46a2-9644-bbdc5c57877f" />
 
 
 
-
+<img width="1280" height="913" alt="orange" src="https://github.com/user-attachments/assets/80fd7d66-7f98-48ff-b022-4169f5f45887" />
 
 ════════════════════
 
-ᥣᥒ𝗍r᥆! 
-════════════════════
+<img width="99" height="56" alt="orangee" src="https://github.com/user-attachments/assets/eb312607-2dbb-4301-b4c0-8fe2a15e1cee" />
 
+
+
+
+<img width="99" height="56" alt="hardlyknow" src="https://github.com/user-attachments/assets/3d4de3e6-5e4f-4522-bdc1-1d15080f7e26" />
+
+
+
+<img width="99" height="56" alt="AHHHHHHHHH" src="https://github.com/user-attachments/assets/3da6842f-7665-428a-b334-171f64899d15" />
 
 ‎ـــــــــــــــــــﮩ٨ـ
-⊱ ────── {.⋅ ♫ ⋅.} ─────
 
 
-ᛝㅤ𝓝ᥲme: whimiscott4 ✦  
+<img width="20" height="20" alt="mnote" src="https://github.com/user-attachments/assets/da8861dd-a039-4cae-ae6e-2a9772bba3bd" />
 
-𝓐ge: not fucking telling
+╭────── · ·  · · ──────╮
 
-𓎟𓎟  he - him - his - any (except for she/her)  ˚. 🍎 ᵎᵎ  𓎟
 
-𓏵　𓈒 my personailty and behaviour are really fluid, it depends on who im talking to tbh, theres not that much about me.　𓏵
+hi
+
+
+im whimiscott4 or  known as ribbony by others.
+
+
+
+i use he/him/any except for she/her
+
+
+╰────── · ·  · · ──────╯
+
+
+
+
+there's really not much anything about myself tbh, my behaviour is fluid however i can be somewhat harsh to others (not really all the time but it depends, i try to be friendly to others, apologies if i may have lashed out on you before though.)<img width="99" height="56" alt="AHHHHHHHHH" src="https://github.com/user-attachments/assets/0f00abaa-c68f-4cc9-9434-52b4291aa032" />
 
 
 ‎ـــــــــــــــــــﮩ٨ـ
 
    ۪ ࣪   ָ   𖦹   ۪   ࣪   ִ      𝇃𝇂    ˒ ˓
 
+<img width="20" height="20" alt="mnote" src="https://github.com/user-attachments/assets/b473ffe6-ff1e-4bf5-b942-dcb1977d321c" />
 
-<img width="47" height="44" alt="musicbox" src="https://github.com/user-attachments/assets/0e09c79a-afa9-4f3e-a8f6-7253bdaad345" />
 
-︶︶︶︶︶︶︶︶︶︶︶︶
+
+<img width="1170" height="1280" alt="silver" src="https://github.com/user-attachments/assets/5f646651-7136-4b34-b1cb-334b585f75f7" />
+
 
 s᥆ᥴіᥲᥣs :
 
-︶︶︶︶︶︶︶︶︶︶︶︶
+
 
 
 https://www.friendproject.net/view_profile.php?member_id=370009
@@ -63,6 +82,11 @@ more coming soon...!
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=whimiscott4)
 
+
+
+
+
+<img width="714" height="800" alt="black" src="https://github.com/user-attachments/assets/984d2f2f-f59c-474b-afcb-00602a1338ae" />
 
 
 ︶︶︶︶︶︶︶︶︶︶︶︶
@@ -95,11 +119,17 @@ https://github.com/user-attachments/assets/0926d8c8-ecd1-40a3-aad4-709a5d819bfb
 
 
 
-https://github.com/user-attachments/assets/0811a054-84f7-42fe-bd81-952d86307eef
+
+https://github.com/user-attachments/assets/1e7371f1-cffa-4b5b-90a6-550be9a5c6ab
 
 
 
-https://github.com/user-attachments/assets/1c1a7f87-7a58-491a-b01c-9ee9315381c8
+
+
+
+https://github.com/user-attachments/assets/14f1d5a3-0e1c-4cd7-814d-c20f2a194c1d
+
+
 
 
 https://github.com/user-attachments/assets/8bd69051-16e8-4d81-8a13-5eb7c9b65c96
@@ -108,7 +138,8 @@ https://github.com/user-attachments/assets/8bd69051-16e8-4d81-8a13-5eb7c9b65c96
 
 
 
-https://github.com/user-attachments/assets/c33d4b19-2718-4c22-99aa-46b6160c451d
+https://github.com/user-attachments/assets/aace4e35-10d4-4d40-9097-512839033393
+
 
 
 
@@ -134,19 +165,9 @@ https://github.com/user-attachments/assets/c50296dd-4e36-4f7e-a56a-0e01a99d7438
 
 
 
-i made this shit, also this is for shits and giggles do not jump me I beg you.
-v
-v
-v
-
-https://github.com/user-attachments/assets/d3a8564c-7a26-4926-95a0-7439e499ceea
 
 
 
-
-
-
-https://github.com/user-attachments/assets/662cca25-7480-47af-a147-47f910effa31
 
 
 
@@ -157,17 +178,13 @@ https://github.com/user-attachments/assets/662cca25-7480-47af-a147-47f910effa31
 
 https://github.com/user-attachments/assets/216e36d7-95ef-41e0-a824-c4cdea406c8f
 
-
-<img width="400" height="142" alt="black and grey" src="https://github.com/user-attachments/assets/cdd83eaa-d40f-4d65-b310-043e60e24b3a" />
-
-<img width="736" height="150" alt="34902965859500500" src="https://github.com/user-attachments/assets/209f63a7-0282-4691-8cc2-3fea0a501b16" />
-<img width="736" height="152" alt="#userboxes #text #words" src="https://github.com/user-attachments/assets/a58ebf46-75ca-4c76-9dc9-dcf0aa89e92c" />
-<img width="99" height="56" alt="GETMEOUTOFTHISSTAMP" src="https://github.com/user-attachments/assets/0ee8fd82-1889-4a90-9bf2-2b4377541be9">
+tps://github.com/user-attachments/assets/b21dc368-5887-45fd-91e2-6623eb7deb88" />
 
 
-<img width="150" height="90" alt="youfoundlostmedia" src="https://github.com/user-attachments/assets/b21dc368-5887-45fd-91e2-6623eb7deb88" />
 
-<img width="400" height="142" alt="blackandgreydown" src="https://github.com/user-attachments/assets/a34e1430-ddd5-4244-8372-fb71fd463a27" />
+
+
+
 
 
 
@@ -292,9 +309,8 @@ PLEASE INTERACT IF YOU ARE A
 
 -A POKEMON FAN.
 
-![touhou-remilia-scarlet](https://github.com/user-attachments/assets/5b88b4f7-d11e-4991-b9d7-c8d45312c5a0)
-
-im also the creator of metall n friends.. a object show arg and whimiscott4 and friends and a few more i guess
-![touhou-rika](https://github.com/user-attachments/assets/b3ee5390-c9dc-477b-a25b-82f2621d4dac)
+<img width="500" height="432" alt="4433299630563223" src="https://github.com/user-attachments/assets/489cc72b-d686-4242-aeea-fcdebda2d67d" />
 
 
+<img width="1280" height="913" alt="orange" src="https://github.com/user-attachments/assets/6383e8ec-ebde-481c-81d1-c3da9d643c85" />
+<img width="1280" height="913" alt="orange" src="https://github.com/user-attachments/assets/a67228a4-8cd3-491e-ab82-785c725bffdc" />
