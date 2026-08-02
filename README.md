@@ -312,5 +312,5 @@ PLEASE INTERACT IF YOU ARE A
 
 ignore this im trying to test on how to color my text
 
- $\color{#b12929}\textsf{ h /}$ 
+ $\color{#b12929}\textsf{ h }$ 
 
