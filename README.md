@@ -310,3 +310,7 @@ PLEASE INTERACT IF YOU ARE A
 
 <img width="500" height="432" alt="4433299630563223" src="https://github.com/user-attachments/assets/489cc72b-d686-4242-aeea-fcdebda2d67d" />
 
+ignore this im trying to test on how to color my text
+
+ $\color{#b12929}\textsf{ h /}$ 
+
