@@ -37,8 +37,7 @@ im whimiscott4 or  known as ribbony by others.
 
 
 
-i use any pronouns, he/him is preferred though
-
+i use he/him/any except for she/her.
 
 ╰────── · ·  · · ──────╯
 
