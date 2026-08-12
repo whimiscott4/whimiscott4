@@ -6,10 +6,8 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Edu+NSW+ACT+Foundation&pause=1000&color=47B87BBE&width=435&lines=+%EA%95%A4+'+Don't+worry+about+the+lack+of+a+name%2C+%2C+;%EA%95%A4+'+it+makes+things+more+amazing+that+way.+%2C;%E2%80%94+Daiyousei's+Fortune+)](https://git.io/typing-svg)
 
 
-
-
-
 <img width="735" height="467" alt="2955556003506241" src="https://github.com/user-attachments/assets/f7d0de4f-a6f5-43eb-96dc-6261e057f913" />
+
 
 <img width="500" height="49" alt="ivy" src="https://github.com/user-attachments/assets/0d2b6068-3dcf-46cf-aeb7-3c2340e52f70" />
 
@@ -20,25 +18,41 @@
 
 
 
+
 <img width="99" height="63" alt="bfdia 1a" src="https://github.com/user-attachments/assets/64b290ca-333c-4730-ad40-614219a865bc" />
+
+
 
 
 <img width="99" height="63" alt="bfdi 1b" src="https://github.com/user-attachments/assets/e732c2d4-8ae3-4f1c-80f4-dcaad8d19f36" />
 
+
+
 <img width="99" height="56" alt="hardlyknow" src="https://github.com/user-attachments/assets/3d4de3e6-5e4f-4522-bdc1-1d15080f7e26" />
+
+
 
 <img width="99" height="56" alt="anger" src="https://github.com/user-attachments/assets/7e43aed1-4b36-4a4b-9324-7c6bc63f6946" />
 
+
+
 <img width="99" height="56" alt="cloverrr" src="https://github.com/user-attachments/assets/ba11a804-f90f-401a-af20-c647bf23eb9f" />
+
 
 
 <img width="250" height="325" alt="whatisthisflowercalled" src="https://github.com/user-attachments/assets/89c3dcda-d955-4138-aaa2-1c77a42d56c5" />
 
 
+
+
 <img width="20" height="20" alt="wind" src="https://github.com/user-attachments/assets/70a998dc-16a5-4f88-94df-9538f853e880" />
 
 
+
+
 <img width="500" height="112" alt="willowww" src="https://github.com/user-attachments/assets/425fc43b-f4fe-4fc8-8fab-0ec68bd70f50" />
+
+
 
 
  $\color{#3cb371}\textsf{ hi }$ 
