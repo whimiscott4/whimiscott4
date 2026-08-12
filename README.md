@@ -39,21 +39,10 @@
 <img width="99" height="56" alt="hardlyknow" src="https://github.com/user-attachments/assets/3d4de3e6-5e4f-4522-bdc1-1d15080f7e26" />
 
 
-
-
-
-
 <img width="99" height="56" alt="anger" src="https://github.com/user-attachments/assets/7e43aed1-4b36-4a4b-9324-7c6bc63f6946" />
 
 
-
-
 <img width="99" height="56" alt="cloverrr" src="https://github.com/user-attachments/assets/ba11a804-f90f-401a-af20-c647bf23eb9f" />
-
-
-
-
-
 
 
 <img width="20" height="20" alt="wind" src="https://github.com/user-attachments/assets/70a998dc-16a5-4f88-94df-9538f853e880" />
