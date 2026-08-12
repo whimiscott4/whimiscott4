@@ -40,7 +40,6 @@
 
 
 
-<img width="250" height="325" alt="whatisthisflowercalled" src="https://github.com/user-attachments/assets/89c3dcda-d955-4138-aaa2-1c77a42d56c5" />
 
 
 
