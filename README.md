@@ -1,57 +1,66 @@
-( THIS IS WIP. )
+( THIS IS WIP, IT IS NOT FINISHED YET, TAKE THIS WITH A GRAIN OF SALT.)
+
+<img width="500" height="49" alt="ivy" src="https://github.com/user-attachments/assets/d8a3ffd9-07e6-44c1-adf5-c802991dec09" />
 
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Edu+NSW+ACT+Foundation&pause=1000&color=47B87BBE&width=435&lines=+%EA%95%A4+'+Don't+worry+about+the+lack+of+a+name%2C+%2C+;%EA%95%A4+'+it+makes+things+more+amazing+that+way.+%2C;%E2%80%94+Daiyousei's+Fortune+)](https://git.io/typing-svg)
 
 
 <img width="600" height="400" alt="675328906669057122" src="https://github.com/user-attachments/assets/eaab89fa-4aa6-46a2-9644-bbdc5c57877f" />
 
 
+<img width="735" height="467" alt="2955556003506241" src="https://github.com/user-attachments/assets/f7d0de4f-a6f5-43eb-96dc-6261e057f913" />
 
-<img width="1280" height="913" alt="orange" src="https://github.com/user-attachments/assets/80fd7d66-7f98-48ff-b022-4169f5f45887" />
-
-════════════════════
-
-<img width="99" height="56" alt="orangee" src="https://github.com/user-attachments/assets/eb312607-2dbb-4301-b4c0-8fe2a15e1cee" />
+<img width="500" height="49" alt="ivy" src="https://github.com/user-attachments/assets/0d2b6068-3dcf-46cf-aeb7-3c2340e52f70" />
 
 
 
+<img width="20" height="20" alt="clober" src="https://github.com/user-attachments/assets/d2287e08-0558-4f13-970d-03f253d5e5d7" />
+
+
+
+
+<img width="99" height="63" alt="bfdia 1a" src="https://github.com/user-attachments/assets/64b290ca-333c-4730-ad40-614219a865bc" />
+
+
+<img width="99" height="63" alt="bfdi 1b" src="https://github.com/user-attachments/assets/e732c2d4-8ae3-4f1c-80f4-dcaad8d19f36" />
 
 <img width="99" height="56" alt="hardlyknow" src="https://github.com/user-attachments/assets/3d4de3e6-5e4f-4522-bdc1-1d15080f7e26" />
 
+<img width="99" height="56" alt="anger" src="https://github.com/user-attachments/assets/7e43aed1-4b36-4a4b-9324-7c6bc63f6946" />
+
+<img width="99" height="56" alt="cloverrr" src="https://github.com/user-attachments/assets/ba11a804-f90f-401a-af20-c647bf23eb9f" />
 
 
-<img width="99" height="56" alt="AHHHHHHHHH" src="https://github.com/user-attachments/assets/3da6842f-7665-428a-b334-171f64899d15" />
-
-‎ـــــــــــــــــــﮩ٨ـ
+<img width="250" height="325" alt="whatisthisflowercalled" src="https://github.com/user-attachments/assets/89c3dcda-d955-4138-aaa2-1c77a42d56c5" />
 
 
-<img width="20" height="20" alt="mnote" src="https://github.com/user-attachments/assets/da8861dd-a039-4cae-ae6e-2a9772bba3bd" />
-
-╭────── · ·  · · ──────╮
+<img width="20" height="20" alt="wind" src="https://github.com/user-attachments/assets/70a998dc-16a5-4f88-94df-9538f853e880" />
 
 
-hi
+<img width="500" height="112" alt="willowww" src="https://github.com/user-attachments/assets/425fc43b-f4fe-4fc8-8fab-0ec68bd70f50" />
 
 
-im whimiscott4 or  known as ribbony by others.
+ $\color{#3cb371}\textsf{ hi }$ 
 
+$\color{#2e8b57}\textsf{ my name is whimiscott4, or known as ribbony by others, }$ 
+$\color{#006b3c}\textsf{ i like stuff }$ 
 
+$\color{#006a4e}\textsf{ i go by he/him/any except for she/her, unless irl in some cases}$ 
 
-i use he/him/any except for she/her.
-
-╰────── · ·  · · ──────╯
+<img width="500" height="66" alt="idkbro" src="https://github.com/user-attachments/assets/5dd53bb7-8e76-4648-80c5-cdaff7056a71" />
 
 
 
+$\color{#00703}\textsf{ there's really nothing about myself tbh,}$ 
+$\color{#177245}\textsf{ whoever i can be somewhat harsh towards others on accident :(}$
+$\color{#8db600}\textsf{ its rare but i try to control it, im sorry if i lashed out on you though }$
 
-there's really not much anything about myself tbh, my behaviour is fluid however i can be somewhat harsh to others (not really all the time but it depends, i try to be friendly to others, apologies if i may have lashed out on you before though.)
+
+‎<img width="150" height="20" alt="idk" src="https://github.com/user-attachments/assets/c9e20eb2-f247-4c90-a336-290dc78879bb" />
 
 
-‎ـــــــــــــــــــﮩ٨ـ
-
-   ۪ ࣪   ָ   𖦹   ۪   ࣪   ִ      𝇃𝇂    ˒ ˓
-
-<img width="20" height="20" alt="mnote" src="https://github.com/user-attachments/assets/b473ffe6-ff1e-4bf5-b942-dcb1977d321c" />
+<img width="61" height="88" alt="sodayumyumm" src="https://github.com/user-attachments/assets/82ef1a37-8baa-42f0-a070-058da825654d" />
 
 
 
@@ -190,13 +199,6 @@ https://github.com/user-attachments/assets/216e36d7-95ef-41e0-a824-c4cdea406c8f
 
 
 
-
-<img width="194" height="81" alt="yewouch" src="https://github.com/user-attachments/assets/122aeea6-b56f-45b5-bf3f-cb1c9788144d" />
-
-
-
-
-
 [ THIN ICE AND DNI/DNFI LIST. ]
 
 TI = Thin ice 
@@ -309,7 +311,7 @@ PLEASE INTERACT IF YOU ARE A
 
 -A POKEMON FAN.
 
-<img width="500" height="432" alt="4433299630563223" src="https://github.com/user-attachments/assets/489cc72b-d686-4242-aeea-fcdebda2d67d" />
+
 
 ignore this im trying to test on how to color my text
 
