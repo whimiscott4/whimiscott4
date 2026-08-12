@@ -24,28 +24,6 @@
 
 
 
-<img width="99" height="63" alt="bfdia 1a" src="https://github.com/user-attachments/assets/64b290ca-333c-4730-ad40-614219a865bc" />
-
-
-
-
-
-<img width="99" height="63" alt="bfdi 1b" src="https://github.com/user-attachments/assets/e732c2d4-8ae3-4f1c-80f4-dcaad8d19f36" />
-
-
-
-
-
-<img width="99" height="56" alt="hardlyknow" src="https://github.com/user-attachments/assets/3d4de3e6-5e4f-4522-bdc1-1d15080f7e26" />
-
-
-<img width="99" height="56" alt="anger" src="https://github.com/user-attachments/assets/7e43aed1-4b36-4a4b-9324-7c6bc63f6946" />
-
-
-<img width="99" height="56" alt="cloverrr" src="https://github.com/user-attachments/assets/ba11a804-f90f-401a-af20-c647bf23eb9f" />
-
-
-<img width="20" height="20" alt="wind" src="https://github.com/user-attachments/assets/70a998dc-16a5-4f88-94df-9538f853e880" />
 
 
 
@@ -74,6 +52,30 @@ $\color{#006a4e}\textsf{ i go by he/him/any except for she/her, unless irl in so
 $\color{#00703}\textsf{ there's really nothing about myself tbh,}$ 
 $\color{#177245}\textsf{ whoever i can be somewhat harsh towards others on accident :(}$
 $\color{#8db600}\textsf{ its rare but i try to control it, im sorry if i lashed out on you though }$
+
+
+
+
+
+<img width="99" height="63" alt="bfdia 1a" src="https://github.com/user-attachments/assets/64b290ca-333c-4730-ad40-614219a865bc" />
+
+
+<img width="99" height="63" alt="bfdi 1b" src="https://github.com/user-attachments/assets/e732c2d4-8ae3-4f1c-80f4-dcaad8d19f36" />
+
+
+<img width="99" height="56" alt="hardlyknow" src="https://github.com/user-attachments/assets/3d4de3e6-5e4f-4522-bdc1-1d15080f7e26" />
+
+
+<img width="99" height="56" alt="anger" src="https://github.com/user-attachments/assets/7e43aed1-4b36-4a4b-9324-7c6bc63f6946" />
+
+
+<img width="99" height="56" alt="cloverrr" src="https://github.com/user-attachments/assets/ba11a804-f90f-401a-af20-c647bf23eb9f" />
+
+
+<img width="20" height="20" alt="wind" src="https://github.com/user-attachments/assets/70a998dc-16a5-4f88-94df-9538f853e880" />
+
+
+
 
 
 ‎<img width="150" height="20" alt="idk" src="https://github.com/user-attachments/assets/c9e20eb2-f247-4c90-a336-290dc78879bb" />
