@@ -115,9 +115,6 @@ more coming soon...!
 
 
 
-<img width="714" height="800" alt="black" src="https://github.com/user-attachments/assets/984d2f2f-f59c-474b-afcb-00602a1338ae" />
-
-
 ︶︶︶︶︶︶︶︶︶︶︶︶
 super awesome video collection ok
 [SOME OF THESE GETS LOUD OR FLASHING STUFF IM WARNING YOU.]
