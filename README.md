@@ -78,14 +78,12 @@ $\color{#8db600}\textsf{ its rare but i try to control it, im sorry if i lashed 
 
 
 
-‎<img width="150" height="20" alt="idk" src="https://github.com/user-attachments/assets/c9e20eb2-f247-4c90-a336-290dc78879bb" />
+‎<img width="500" height="20" alt="idk" src="https://github.com/user-attachments/assets/c9e20eb2-f247-4c90-a336-290dc78879bb" />
 
 
 <img width="61" height="88" alt="sodayumyumm" src="https://github.com/user-attachments/assets/82ef1a37-8baa-42f0-a070-058da825654d" />
 
 
-
-<img width="1170" height="1280" alt="silver" src="https://github.com/user-attachments/assets/5f646651-7136-4b34-b1cb-334b585f75f7" />
 
 
 s᥆ᥴіᥲᥣs :
