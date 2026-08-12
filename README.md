@@ -49,7 +49,7 @@ $\color{#006a4e}\textsf{ i go by he/him/any except for she/her, unless irl in so
 
 
 
-$\color{#00703}\textsf{ there's really nothing about myself tbh,}$ 
+$\color{#355e3b}\textsf{ there's really nothing about myself tbh,}$ 
 $\color{#177245}\textsf{ whoever i can be somewhat harsh towards others on accident :(}$
 $\color{#8db600}\textsf{ its rare but i try to control it, im sorry if i lashed out on you though }$
 
