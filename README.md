@@ -88,7 +88,7 @@ $\color{#009900}\textsf{ its rare but i try to control it, im sorry if i lashed 
 
 s᥆ᥴіᥲᥣs :
 
-
+\color{#009f6b}\textsf{ s᥆ᥴіᥲᥣs :}$ 
 
 
 https://www.friendproject.net/view_profile.php?member_id=370009
