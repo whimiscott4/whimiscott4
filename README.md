@@ -6,7 +6,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Edu+NSW+ACT+Foundation&pause=1000&color=47B87BBE&width=435&lines=+%EA%95%A4+'+Don't+worry+about+the+lack+of+a+name%2C+%2C+;%EA%95%A4+'+it+makes+things+more+amazing+that+way.+%2C;%E2%80%94+Daiyousei's+Fortune+)](https://git.io/typing-svg)
 
 
-<img width="735" height="467" alt="2955556003506241" src="https://github.com/user-attachments/assets/f7d0de4f-a6f5-43eb-96dc-6261e057f913" />
+<img width="735" height="477" alt="☘️ 𝓒𝓵𝓸𝓿𝓮𝓻 𝓑𝓪𝓷𝓷𝓮𝓻 ☘️" src="https://github.com/user-attachments/assets/aa27ce3e-b03b-42d4-ad24-e2aa61a5fb7e" />
 
 
 
