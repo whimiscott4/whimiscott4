@@ -337,9 +337,8 @@ PLEASE INTERACT IF YOU ARE A
 
 ignore this im trying to test on how to color my text and something else idk
 
-hi </summary>
-    
-    i eat dirt./ref
+hi</summary>
+i eat dirt
    
 
  $\color{#b12929}\textsf{ h }$ 
