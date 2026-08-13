@@ -120,16 +120,13 @@ more coming soon...!
 
 
 
-
-︶︶︶︶︶︶︶︶︶︶︶︶
-super awesome video collection ok
-[SOME OF THESE GETS LOUD OR FLASHING STUFF IM WARNING YOU.]
-
-︶︶︶︶︶︶︶︶︶︶︶︶
+$\color{#00a877}\textsf{ funny video collection i guess}$
+\color{#ff0000 }\textsf{ (WARNING SOME OF THESE VIDEOS ARE LOUD OR HAVE FLASHING LIGHTS OR SOMETHING IDK BE CAREFUL) }$ 
 
 
 
-<details closed>
+
+<details open>
   <summary>test</summary>
   <p>
    
