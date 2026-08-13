@@ -335,7 +335,12 @@ PLEASE INTERACT IF YOU ARE A
 
 
 
-ignore this im trying to test on how to color my text
+ignore this im trying to test on how to color my text and something else idk
+
+h </summary>
+    hi
 
  $\color{#b12929}\textsf{ h }$ 
+
+ 
 
