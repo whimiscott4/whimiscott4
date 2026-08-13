@@ -1,8 +1,4 @@
 
-https://github.com/user-attachments/assets/a65e6fd5-9a0d-49e2-bc62-ceedb3b3459e
-
-
-https://github.com/user-attachments/assets/5970bb3d-6eca-4826-bba5-91aadd679135
 
 ( THIS IS WIP, IT IS NOT FINISHED YET, TAKE THIS WITH A GRAIN OF SALT.)
 
