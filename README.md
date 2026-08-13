@@ -66,7 +66,14 @@ $\color{#009900}\textsf{ its rare but i try to control it, im sorry if i lashed 
 <img width="99" height="56" alt="hardlyknow" src="https://github.com/user-attachments/assets/3d4de3e6-5e4f-4522-bdc1-1d15080f7e26" />
 
 
+<img width="99" height="56" alt="stamp" src="https://github.com/user-attachments/assets/e1c5ec1a-71dd-4855-9353-9741e4530f19" />
+
+
 <img width="99" height="56" alt="anger" src="https://github.com/user-attachments/assets/7e43aed1-4b36-4a4b-9324-7c6bc63f6946" />
+
+
+<img width="99" height="56" alt="stamp (2)" src="https://github.com/user-attachments/assets/5a5f93d7-12ee-4ed6-9bfe-bff715304b71" />
+
 
 
 <img width="99" height="56" alt="cloverrr" src="https://github.com/user-attachments/assets/ba11a804-f90f-401a-af20-c647bf23eb9f" />
