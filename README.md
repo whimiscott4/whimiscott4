@@ -121,7 +121,8 @@ more coming soon...!
 
 
 $\color{#00a877}\textsf{ funny video collection i guess}$
-\color{#ff0000 }\textsf{ (WARNING SOME OF THESE VIDEOS ARE LOUD OR HAVE FLASHING LIGHTS OR SOMETHING IDK BE CAREFUL) }$ 
+
+\color{#ff0000 }\textsf{ WARNING SOME OF THESE VIDEOS ARE LOUD OR HAVE FLASHING LIGHTS OR SOMETHING IDK BE CAREFUL }$ 
 
 
 
@@ -129,7 +130,6 @@ $\color{#00a877}\textsf{ funny video collection i guess}$
 <details open>
   <summary>test</summary>
   <p>
-   
 https://github.com/user-attachments/assets/00be4c69-eb41-49c4-954e-021b55ebbe00
    
 https://github.com/user-attachments/assets/f062051f-80ad-48ed-b1a9-ac650e71c902
