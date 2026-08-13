@@ -129,9 +129,10 @@ super awesome video collection ok
 
 
 
-<details open>
+<details closed>
   <summary>test</summary>
   <p>
+   
 https://github.com/user-attachments/assets/00be4c69-eb41-49c4-954e-021b55ebbe00
    
 https://github.com/user-attachments/assets/f062051f-80ad-48ed-b1a9-ac650e71c902
