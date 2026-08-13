@@ -1,3 +1,9 @@
+
+https://github.com/user-attachments/assets/a65e6fd5-9a0d-49e2-bc62-ceedb3b3459e
+
+
+https://github.com/user-attachments/assets/5970bb3d-6eca-4826-bba5-91aadd679135
+
 ( THIS IS WIP, IT IS NOT FINISHED YET, TAKE THIS WITH A GRAIN OF SALT.)
 
 <img width="500" height="49" alt="ivy" src="https://github.com/user-attachments/assets/d8a3ffd9-07e6-44c1-adf5-c802991dec09" />
@@ -132,16 +138,17 @@ $\color{#ff0000 }\textsf{ WARNING SOME OF THESE VIDEOS ARE LOUD OR HAVE FLASHING
   <p>
    
 https://github.com/user-attachments/assets/00be4c69-eb41-49c4-954e-021b55ebbe00
+
+
+https://github.com/user-attachments/assets/042c207d-cf37-412f-9c51-6caeaea1c5dd
+
+
  
 https://github.com/user-attachments/assets/f062051f-80ad-48ed-b1a9-ac650e71c902
 
 https://github.com/user-attachments/assets/0926d8c8-ecd1-40a3-aad4-709a5d819bfb
 
 https://github.com/user-attachments/assets/1e7371f1-cffa-4b5b-90a6-550be9a5c6ab
-
-https://github.com/user-attachments/assets/14f1d5a3-0e1c-4cd7-814d-c20f2a194c1d
-
-https://github.com/user-attachments/assets/8bd69051-16e8-4d81-8a13-5eb7c9b65c96
 
 https://github.com/user-attachments/assets/aace4e35-10d4-4d40-9097-512839033393
 
@@ -152,8 +159,6 @@ https://github.com/user-attachments/assets/6caf60c8-9b99-4989-be2c-4bbb53af35f7
 https://github.com/user-attachments/assets/13fa960d-3836-47f8-8c35-7231478f6ce8
 
 https://github.com/user-attachments/assets/c50296dd-4e36-4f7e-a56a-0e01a99d7438
-
-https://github.com/user-attachments/assets/216e36d7-95ef-41e0-a824-c4cdea406c8f
 
 
   </p>
