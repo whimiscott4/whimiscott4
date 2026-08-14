@@ -57,6 +57,7 @@ $\color{#1a1a42}\textsf{ its rare but i try to control it, im sorry if i lashed 
 <img width="500" height="32" alt="webbrowser" src="https://github.com/user-attachments/assets/db8a8060-4040-457c-bfc8-7001699d3efd" />
 
 
+
 <img width="500" height="280" alt="darkbkue" src="https://github.com/user-attachments/assets/01569a54-33a0-4c0f-856b-54986324d56b" />
 
 
@@ -70,16 +71,28 @@ $\color{#1a1a42}\textsf{ its rare but i try to control it, im sorry if i lashed 
 <img width="99" height="63" alt="bfdia 1a" src="https://github.com/user-attachments/assets/64b290ca-333c-4730-ad40-614219a865bc" />
 
 
+
+
 <img width="99" height="63" alt="bfdi 1b" src="https://github.com/user-attachments/assets/e732c2d4-8ae3-4f1c-80f4-dcaad8d19f36" />
+
+
 
 
 <img width="99" height="56" alt="hardlyknow" src="https://github.com/user-attachments/assets/3d4de3e6-5e4f-4522-bdc1-1d15080f7e26" />
 
+
+
 <img width="99" height="56" alt="stamp (4)" src="https://github.com/user-attachments/assets/4997f4ee-3b7f-4ce6-a7ca-f14ced4e40ef" />
+
+
 
 <img width="99" height="56" alt="stamp (3)" src="https://github.com/user-attachments/assets/9faa9c4d-6880-4a62-a4ca-a510f0dac59e" />
 
+
+
 <<img width="99" height="56" alt="stamp (6)" src="https://github.com/user-attachments/assets/fb630765-df13-4315-a6a7-0e29d382dbf9" />
+
+
 
 <img width="99" height="56" alt="stamp (5)" src="https://github.com/user-attachments/assets/6173ebb4-1322-4d3c-a883-898fe8dbc800" />
 
