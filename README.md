@@ -52,40 +52,11 @@ $\color{#1a1a42}\textsf{ its rare but i try to control it, im sorry if i lashed 
 
 
 <img width="500" height="32" alt="webbrowser" src="https://github.com/user-attachments/assets/db8a8060-4040-457c-bfc8-7001699d3efd" />
-
-
-
 <img width="500" height="280" alt="darkbkue" src="https://github.com/user-attachments/assets/01569a54-33a0-4c0f-856b-54986324d56b" />
-
-
-
-
-
-
-
 <img width="99" height="56" alt="stamp (4)" src="https://github.com/user-attachments/assets/4997f4ee-3b7f-4ce6-a7ca-f14ced4e40ef" />
-
-
-
 <img width="99" height="56" alt="stamp (3)" src="https://github.com/user-attachments/assets/9faa9c4d-6880-4a62-a4ca-a510f0dac59e" />
-
-
-
 <<img width="99" height="56" alt="stamp (6)" src="https://github.com/user-attachments/assets/fb630765-df13-4315-a6a7-0e29d382dbf9" />
-
-
-
 <img width="99" height="56" alt="stamp (5)" src="https://github.com/user-attachments/assets/6173ebb4-1322-4d3c-a883-898fe8dbc800" />
-
-
-
-
-<img width="99" height="56" alt="cloverrr" src="https://github.com/user-attachments/assets/ba11a804-f90f-401a-af20-c647bf23eb9f" />
-
-
-<img width="20" height="20" alt="wind" src="https://github.com/user-attachments/assets/70a998dc-16a5-4f88-94df-9538f853e880" />
-
-
 
 
 
