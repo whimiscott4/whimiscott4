@@ -1,5 +1,4 @@
 
-
 ( THIS IS WIP, IT IS NOT FINISHED YET, TAKE THIS WITH A GRAIN OF SALT.)
 
 
@@ -52,6 +51,11 @@ $\color{#1a1a42}\textsf{ its rare but i try to control it, im sorry if i lashed 
 
 
 <img width="600" height="338" alt="darkbkue" src="https://github.com/user-attachments/assets/473946ef-81e5-43f4-9d90-2297ea62d048" />
+
+
+<img width="500" height="4" alt="bluesparkle" src="https://github.com/user-attachments/assets/1fbb72f6-aecf-4b58-ab41-7a080cb385cd" />
+
+$\color{#b12929}\textsf{ STAMPS OR SOME SHIT IDK}$
 
 
 
