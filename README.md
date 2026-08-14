@@ -27,9 +27,6 @@ $\color{#103124}\textsf{ i like gori cuddly carnage, touhou, super scuffle, pac 
 
 
 
-$\color{#103124}\textsf{ i go by he/him/any except for she/her, unless irl in some cases}$ 
-
-
 <img width="500" height="20" alt="tumblr_34e1572ca1a10e3deb3075ce2afb44fe_5c3f2f04_500" src="https://github.com/user-attachments/assets/a3de36d2-fcb8-462d-8fe2-27261004aab8" />
 
 
@@ -53,6 +50,10 @@ $\color{#1a1a42}\textsf{ its rare but i try to control it, im sorry if i lashed 
 
 <img width="500" height="32" alt="webbrowser" src="https://github.com/user-attachments/assets/db8a8060-4040-457c-bfc8-7001699d3efd" />
 <img width="500" height="280" alt="darkbkue" src="https://github.com/user-attachments/assets/01569a54-33a0-4c0f-856b-54986324d56b" />
+
+
+
+
 <img width="99" height="56" alt="stamp (4)" src="https://github.com/user-attachments/assets/4997f4ee-3b7f-4ce6-a7ca-f14ced4e40ef" />
 <img width="99" height="56" alt="stamp (3)" src="https://github.com/user-attachments/assets/9faa9c4d-6880-4a62-a4ca-a510f0dac59e" />
 <<img width="99" height="56" alt="stamp (6)" src="https://github.com/user-attachments/assets/fb630765-df13-4315-a6a7-0e29d382dbf9" />
