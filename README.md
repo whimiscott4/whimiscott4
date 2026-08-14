@@ -61,10 +61,6 @@ $\color{#1a1a42}\textsf{ its rare but i try to control it, im sorry if i lashed 
 
 
 
-‎<img width="500" height="20" alt="idk" src="https://github.com/user-attachments/assets/c9e20eb2-f247-4c90-a336-290dc78879bb" />
-
-
-<img width="61" height="88" alt="sodayumyumm" src="https://github.com/user-attachments/assets/82ef1a37-8baa-42f0-a070-058da825654d" />
 
 
 
