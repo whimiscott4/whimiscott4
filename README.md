@@ -4,8 +4,6 @@
 
 
 
-<img width="500" height="30" alt="redyay" src="https://github.com/user-attachments/assets/85177348-6141-4e6b-bfc3-5ca668985028" />
-
 <img width="500" height="76" alt="wahttheufck" src="https://github.com/user-attachments/assets/935c9a69-d06f-4fc8-a1e0-12d8780bb809" />
 
 
