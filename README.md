@@ -2,58 +2,70 @@
 
 ( THIS IS WIP, IT IS NOT FINISHED YET, TAKE THIS WITH A GRAIN OF SALT.)
 
-<img width="500" height="49" alt="ivy" src="https://github.com/user-attachments/assets/d8a3ffd9-07e6-44c1-adf5-c802991dec09" />
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Edu+NSW+ACT+Foundation&pause=1000&color=47B87BBE&width=435&lines=+%EA%95%A4+'+Don't+worry+about+the+lack+of+a+name%2C+%2C+;%EA%95%A4+'+it+makes+things+more+amazing+that+way.+%2C;%E2%80%94+Daiyousei's+Fortune+)](https://git.io/typing-svg)
+<img width="500" height="30" alt="redyay" src="https://github.com/user-attachments/assets/85177348-6141-4e6b-bfc3-5ca668985028" />
+
+<img width="500" height="76" alt="wahttheufck" src="https://github.com/user-attachments/assets/935c9a69-d06f-4fc8-a1e0-12d8780bb809" />
 
 
-<img width="735" height="477" alt="☘️ 𝓒𝓵𝓸𝓿𝓮𝓻 𝓑𝓪𝓷𝓷𝓮𝓻 ☘️" src="https://github.com/user-attachments/assets/aa27ce3e-b03b-42d4-ad24-e2aa61a5fb7e" />
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Schoolbell&pause=1000&color=B12929&width=435&lines='+jx1dx1+is+my+DAD!!+%2C;'+and+i+am+his+TOTALLY+real+son!+%2C+;'++havent+i+been+already+been+like.++%2C;'+saying+this+for+months+already+%2C;'+its+probably+outdated+now+already+isnt+it+huh+%2C;'+but+whatever+.+%2C)](https://git.io/typing-svg)
 
 
-
-<img width="500" height="49" alt="ivy" src="https://github.com/user-attachments/assets/0d2b6068-3dcf-46cf-aeb7-3c2340e52f70" />
-
+<img width="385" height="29" alt="red" src="https://github.com/user-attachments/assets/502c2ee7-8ee7-4887-989a-eb8b13349165" />
 
 
+<img width="600" height="338" alt="Ataraxia" src="https://github.com/user-attachments/assets/35ac57a9-e85e-4f2f-82e9-d9536e53c024" />
 
 
+ $\color{#b12929}\textsf{ hi! }$ 
+<img width="32" height="32" alt="New Piskel (2)" src="https://github.com/user-attachments/assets/58f5091d-aebe-4316-bf12-853df840f6b5" />
 
 
-
-
-
-
-
-
+$\color{#1a1a42}\textsf{ my name is whimiscott4, or known as ribbony by others, }$ 
 
 
 
-
+$\color{#103124}\textsf{ i like gori cuddly carnage, touhou, super scuffle, pac man, and also somewhat baldi basics too, and more!!˙𐃷˙   }$ 
 
 
 
 
-
-<img width="500" height="112" alt="willowww" src="https://github.com/user-attachments/assets/425fc43b-f4fe-4fc8-8fab-0ec68bd70f50" />
-
+$\color{#103124}\textsf{ i go by he/him/any except for she/her, unless irl in some cases}$ 
 
 
-
- $\color{#3cb371}\textsf{ hi }$ 
-
-$\color{#2e8b57}\textsf{ my name is whimiscott4, or known as ribbony by others, }$ 
-$\color{#006b3c}\textsf{ i like stuff }$ 
-
-$\color{#006a4e}\textsf{ i go by he/him/any except for she/her, unless irl in some cases}$ 
-
-<img width="500" height="66" alt="idkbro" src="https://github.com/user-attachments/assets/5dd53bb7-8e76-4648-80c5-cdaff7056a71" />
+<img width="500" height="20" alt="tumblr_34e1572ca1a10e3deb3075ce2afb44fe_5c3f2f04_500" src="https://github.com/user-attachments/assets/a3de36d2-fcb8-462d-8fe2-27261004aab8" />
 
 
+<img width="500" height="32" alt="webbrowsergreen" src="https://github.com/user-attachments/assets/034c9bb6-b3ba-4568-94d4-8fa40e09fdd9" />
 
-$\color{#355e3b}\textsf{ there's really nothing about myself tbh,}$ 
-$\color{#059033}\textsf{ whoever i can be somewhat harsh towards others on accident :(}$
-$\color{#009900}\textsf{ its rare but i try to control it, im sorry if i lashed out on you though }$
+
+<img width="600" height="338" alt="download (5)" src="https://github.com/user-attachments/assets/61e9af03-70ac-4e1a-8aa1-b92db58a0e1b" />
+
+
+<img width="2048" height="123" alt="darkforest" src="https://github.com/user-attachments/assets/858dc373-a0bd-4a88-abe8-3c6d605ebcb4" />
+
+
+
+$\color{#b12929}\textsf{ theres really nothing about myself tbh}$
+
+
+$\color{#103124}\textsf{ whoever i can be somewhat harsh towards others on accident :(}$
+
+
+$\color{#1a1a42}\textsf{ its rare but i try to control it, im sorry if i lashed out on you though }$
+
+
+<img width="500" height="32" alt="webbrowser" src="https://github.com/user-attachments/assets/db8a8060-4040-457c-bfc8-7001699d3efd" />
+
+
+<img width="500" height="280" alt="darkbkue" src="https://github.com/user-attachments/assets/01569a54-33a0-4c0f-856b-54986324d56b" />
+
+
+<img width="500" height="167" alt="okyeah" src="https://github.com/user-attachments/assets/528e8a5e-714d-4535-bb7e-a0293eb1a1a4" />
+
+
+<img width="500" height="4" alt="bluesparkle" src="https://github.com/user-attachments/assets/f03ab433-0122-4f4d-b48f-e8c1e6b3c899" />
 
 
 
@@ -67,14 +79,14 @@ $\color{#009900}\textsf{ its rare but i try to control it, im sorry if i lashed 
 
 <img width="99" height="56" alt="hardlyknow" src="https://github.com/user-attachments/assets/3d4de3e6-5e4f-4522-bdc1-1d15080f7e26" />
 
+<img width="99" height="56" alt="stamp (4)" src="https://github.com/user-attachments/assets/4997f4ee-3b7f-4ce6-a7ca-f14ced4e40ef" />
 
-<img width="99" height="56" alt="stamp" src="https://github.com/user-attachments/assets/e1c5ec1a-71dd-4855-9353-9741e4530f19" />
+<img width="99" height="56" alt="stamp (3)" src="https://github.com/user-attachments/assets/9faa9c4d-6880-4a62-a4ca-a510f0dac59e" />
 
+<<img width="99" height="56" alt="stamp (6)" src="https://github.com/user-attachments/assets/fb630765-df13-4315-a6a7-0e29d382dbf9" />
 
-<img width="99" height="56" alt="anger" src="https://github.com/user-attachments/assets/7e43aed1-4b36-4a4b-9324-7c6bc63f6946" />
+<img width="99" height="56" alt="stamp (5)" src="https://github.com/user-attachments/assets/6173ebb4-1322-4d3c-a883-898fe8dbc800" />
 
-
-<img width="99" height="56" alt="stamp (2)" src="https://github.com/user-attachments/assets/5a5f93d7-12ee-4ed6-9bfe-bff715304b71" />
 
 
 
