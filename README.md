@@ -62,11 +62,6 @@ $\color{#1a1a42}\textsf{ its rare but i try to control it, im sorry if i lashed 
 
 
 
-<img width="500" height="4" alt="bluesparkle" src="https://github.com/user-attachments/assets/f03ab433-0122-4f4d-b48f-e8c1e6b3c899" />
-
-
-
-
 
 <img width="99" height="63" alt="bfdia 1a" src="https://github.com/user-attachments/assets/64b290ca-333c-4730-ad40-614219a865bc" />
 
