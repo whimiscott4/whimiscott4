@@ -1,4 +1,5 @@
 
+
 ( THIS IS WIP, IT IS NOT FINISHED YET, TAKE THIS WITH A GRAIN OF SALT.)
 
 
@@ -69,6 +70,7 @@ $\color{#1a1a42}\textsf{ STAMPS OR SOMETHING IDK}$
 
 
 
+<img width="500" height="4" alt="tumblr_31d56d39f12e4983a28a555452b1854c_c61f2a63_500" src="https://github.com/user-attachments/assets/a703ae70-5257-445d-b1bb-204a6fd7f0db" />
 
 
 
@@ -78,7 +80,7 @@ $\color{#1a1a42}\textsf{ STAMPS OR SOMETHING IDK}$
 
 
 
-$\color{#009f6b}\textsf{ socials: }$
+$\color{#b12929}\textsf{ socials: }$
 
 
 
@@ -105,15 +107,15 @@ more coming soon...!
 
 
 
-$\color{#00a877}\textsf{ funny video collection i guess}$
+$\color{#103124}\textsf{ funny video collection i guess}$
 
-$\color{#ff0000 }\textsf{ WARNING SOME OF THESE VIDEOS ARE LOUD OR HAVE FLASHING LIGHTS OR SOMETHING IDK BE CAREFUL }$ 
+$\color{#1a1a42 }\textsf{ WARNING SOME OF THESE VIDEOS ARE LOUD OR HAVE FLASHING LIGHTS OR SOMETHING IDK BE CAREFUL }$ 
 
 
 
 
 <details open>
-  <summary>test</summary>
+  <summary>video collection ig</summary>
   <p>
    
 https://github.com/user-attachments/assets/00be4c69-eb41-49c4-954e-021b55ebbe00
