@@ -55,7 +55,7 @@ $\color{#1a1a42}\textsf{ its rare but i try to control it, im sorry if i lashed 
 
 <img width="500" height="4" alt="bluesparkle" src="https://github.com/user-attachments/assets/1fbb72f6-aecf-4b58-ab41-7a080cb385cd" />
 
-$\color{#b12929}\textsf{ STAMPS OR SOME SHIT IDK}$
+$\color{#1a1a42}\textsf{ STAMPS OR SOMETHING IDK}$
 
 
 
