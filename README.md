@@ -50,8 +50,6 @@ $\color{#1a1a42}\textsf{ its rare but i try to control it, im sorry if i lashed 
 
 <img width="500" height="32" alt="webbrowser" src="https://github.com/user-attachments/assets/db8a8060-4040-457c-bfc8-7001699d3efd" />
 
-<img width="500" height="280" alt="darkbkue" src="https://github.com/user-attachments/assets/01569a54-33a0-4c0f-856b-54986324d56b" />
-
 
 
 
