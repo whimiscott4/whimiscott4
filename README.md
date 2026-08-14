@@ -4,8 +4,6 @@
 
 
 
-<img width="500" height="76" alt="wahttheufck" src="https://github.com/user-attachments/assets/935c9a69-d06f-4fc8-a1e0-12d8780bb809" />
-
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Schoolbell&pause=1000&color=B12929&width=435&lines='+jx1dx1+is+my+DAD!!+%2C;'+and+i+am+his+TOTALLY+real+son!+%2C+;'++havent+i+been+already+been+like.++%2C;'+saying+this+for+months+already+%2C;'+its+probably+outdated+now+already+isnt+it+huh+%2C;'+but+whatever+.+%2C)](https://git.io/typing-svg)
 
@@ -41,7 +39,6 @@ $\color{#103124}\textsf{ i go by he/him/any except for she/her, unless irl in so
 <img width="600" height="338" alt="download (5)" src="https://github.com/user-attachments/assets/61e9af03-70ac-4e1a-8aa1-b92db58a0e1b" />
 
 
-<img width="2048" height="123" alt="darkforest" src="https://github.com/user-attachments/assets/858dc373-a0bd-4a88-abe8-3c6d605ebcb4" />
 
 
 
@@ -63,17 +60,6 @@ $\color{#1a1a42}\textsf{ its rare but i try to control it, im sorry if i lashed 
 
 
 
-<img width="99" height="63" alt="bfdia 1a" src="https://github.com/user-attachments/assets/64b290ca-333c-4730-ad40-614219a865bc" />
-
-
-
-
-<img width="99" height="63" alt="bfdi 1b" src="https://github.com/user-attachments/assets/e732c2d4-8ae3-4f1c-80f4-dcaad8d19f36" />
-
-
-
-
-<img width="99" height="56" alt="hardlyknow" src="https://github.com/user-attachments/assets/3d4de3e6-5e4f-4522-bdc1-1d15080f7e26" />
 
 
 
