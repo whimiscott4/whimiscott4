@@ -109,7 +109,8 @@ more coming soon...!
 
 $\color{#103124}\textsf{ funny video collection i guess}$
 
-$\color{#1a1a42 }\textsf{ WARNING SOME OF THESE VIDEOS ARE LOUD OR HAVE FLASHING LIGHTS OR SOMETHING IDK BE CAREFUL }$ 
+$\color{#1a1a42 }\textsf{ WARNING SOME OF THESE VIDEOS ARE LOUD OR HAVE FLASHING LIGHTS OR SOMETHING IDK BE CAREFUL}$ 
+
 
 
 
