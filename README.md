@@ -1,6 +1,7 @@
 
 
 ( THIS IS WIP, IT IS NOT FINISHED YET, TAKE THIS WITH A GRAIN OF SALT.)
+(also offtopic but im pony town's daiyousei in pt's hall of media LETSSS GOOOOO)
 
 
 
