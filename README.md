@@ -34,13 +34,7 @@ $\color{#103124}\textsf{ i like gori cuddly carnage, touhou, super scuffle, pac 
 
 
 
-
-
-<img width="500" height="81" alt="file" src="https://github.com/user-attachments/assets/b5704a60-8612-48f8-ae96-f44f75bb91ae" />
-
-
-
-<img width="500" height="81" alt="cloveros" src="https://github.com/user-attachments/assets/de6f93ca-5359-4e89-a77a-3fbedfe49ecd" />
+<img width="240" height="101" alt="greendeco1" src="https://github.com/user-attachments/assets/b111d7c3-0219-4c1e-afe4-a5713a6e93e2" />
 
 
 
@@ -54,7 +48,9 @@ $\color{#103124}\textsf{ whoever i can be somewhat harsh towards others on accid
 $\color{#1a1a42}\textsf{ its rare but i try to control it, im sorry if i lashed out on you though }$
 
 
-<img width="1280" height="60" alt="cloverside" src="https://github.com/user-attachments/assets/394147c6-8409-4aba-97b8-965bb9105223" />
+
+<img width="240" height="141" alt="greendeco2" src="https://github.com/user-attachments/assets/b1ec2634-4df5-40ea-aa96-ee76fb1d45e4" />
+
 
 
 <img width="500" height="500" alt="blue" src="https://github.com/user-attachments/assets/92e2f57c-6a79-4bf5-99ef-f121934faa5c" />
