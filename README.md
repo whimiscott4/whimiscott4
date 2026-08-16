@@ -34,13 +34,18 @@ $\color{#103124}\textsf{ i like gori cuddly carnage, touhou, super scuffle, pac 
 
 
 
-<img width="240" height="101" alt="greendeco1" src="https://github.com/user-attachments/assets/b111d7c3-0219-4c1e-afe4-a5713a6e93e2" />
 
+
+
+
+
+<img width="500" height="20" alt="tumblr_34e1572ca1a10e3deb3075ce2afb44fe_5c3f2f04_500" src="https://github.com/user-attachments/assets/2ad77ec6-3bd7-4a9e-8cd0-48362049e768" />
+
+<img width="500" height="123" alt="darkforest" src="https://github.com/user-attachments/assets/760a80dd-b87e-4be2-ba31-98923bc1f46f" />
 
 
 
 $\color{#b12929}\textsf{ theres really nothing about myself tbh}$
-
 
 $\color{#103124}\textsf{ whoever i can be somewhat harsh towards others on accident :(}$
 
@@ -48,8 +53,18 @@ $\color{#103124}\textsf{ whoever i can be somewhat harsh towards others on accid
 $\color{#1a1a42}\textsf{ its rare but i try to control it, im sorry if i lashed out on you though }$
 
 
+<img width="500" height="123" alt="darkforest" src="https://github.com/user-attachments/assets/42ee2d2b-1c20-4a7c-9d90-e60b009b3040" />
 
-<img width="240" height="141" alt="greendeco2" src="https://github.com/user-attachments/assets/b1ec2634-4df5-40ea-aa96-ee76fb1d45e4" />
+
+
+
+
+
+
+
+
+
+
 
 
 
