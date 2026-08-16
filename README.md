@@ -53,12 +53,11 @@ $\color{#1a1a42}\textsf{ its rare but i try to control it, im sorry if i lashed 
 
 
 
-$\color{#1a1a42}\textsf{ STAMPS OR SOMETHING IDK}$
-
-
-
 <img width="500" height="53" alt="whateverman2" src="https://github.com/user-attachments/assets/69f7beaf-c330-44b9-9478-db7bf3ca8372" />
 
+
+
+$\color{#1a1a42}\textsf{ STAMPS OR SOMETHING IDK}$
 
 
 
