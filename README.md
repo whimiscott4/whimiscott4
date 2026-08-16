@@ -56,16 +56,21 @@ $\color{#1a1a42}\textsf{ its rare but i try to control it, im sorry if i lashed 
 $\color{#1a1a42}\textsf{ STAMPS OR SOMETHING IDK}$
 
 
-
 <img width="500" height="53" alt="whateverman2" src="https://github.com/user-attachments/assets/69f7beaf-c330-44b9-9478-db7bf3ca8372" />
 
 
 
 <img width="99" height="56" alt="stamp (4)" src="https://github.com/user-attachments/assets/4997f4ee-3b7f-4ce6-a7ca-f14ced4e40ef" />
 
+
+
 <img width="99" height="56" alt="stamp (3)" src="https://github.com/user-attachments/assets/9faa9c4d-6880-4a62-a4ca-a510f0dac59e" />
+
+
  
 <img width="99" height="56" alt="stamp (6)" src="https://github.com/user-attachments/assets/fb630765-df13-4315-a6a7-0e29d382dbf9" />
+
+
 
 <img width="99" height="56" alt="stamp (5)" src="https://github.com/user-attachments/assets/6173ebb4-1322-4d3c-a883-898fe8dbc800" />
 
@@ -73,7 +78,6 @@ $\color{#1a1a42}\textsf{ STAMPS OR SOMETHING IDK}$
 
 
 <img width="500" height="53" alt="whateverman" src="https://github.com/user-attachments/assets/c9af7054-3f5e-41de-8c24-ba75992aaa01" />
-
 
 
 
