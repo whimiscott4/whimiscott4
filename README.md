@@ -9,10 +9,10 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Schoolbell&pause=1000&color=B12929&width=435&lines='+jx1dx1+is+my+DAD!!+%2C;'+and+i+am+his+TOTALLY+real+son!+%2C+;'++havent+i+been+already+been+like.++%2C;'+saying+this+for+months+already+%2C;'+its+probably+outdated+now+already+isnt+it+huh+%2C;'+but+whatever+.+%2C)](https://git.io/typing-svg)
 
 
-<img width="385" height="29" alt="red" src="https://github.com/user-attachments/assets/502c2ee7-8ee7-4887-989a-eb8b13349165" />
+<img width="500" height="81" alt="whtvthisis" src="https://github.com/user-attachments/assets/b95dd0a2-794b-4dcc-9faa-8535e8813083" />
 
 
-<img width="600" height="338" alt="Ataraxia" src="https://github.com/user-attachments/assets/35ac57a9-e85e-4f2f-82e9-d9536e53c024" />
+
 
 
  $\color{#b12929}\textsf{ hi! }$ 
@@ -27,14 +27,14 @@ $\color{#103124}\textsf{ i like gori cuddly carnage, touhou, super scuffle, pac 
 
 
 
-
-<img width="500" height="20" alt="tumblr_34e1572ca1a10e3deb3075ce2afb44fe_5c3f2f04_500" src="https://github.com/user-attachments/assets/a3de36d2-fcb8-462d-8fe2-27261004aab8" />
-
-
-<img width="500" height="32" alt="webbrowsergreen" src="https://github.com/user-attachments/assets/034c9bb6-b3ba-4568-94d4-8fa40e09fdd9" />
+<img width="500" height="81" alt="whtvthisis24" src="https://github.com/user-attachments/assets/95df6199-6792-4e02-a447-6c0c9571af04" />
 
 
-<img width="600" height="338" alt="download (5)" src="https://github.com/user-attachments/assets/61e9af03-70ac-4e1a-8aa1-b92db58a0e1b" />
+
+
+
+
+
 
 
 
@@ -49,17 +49,14 @@ $\color{#103124}\textsf{ whoever i can be somewhat harsh towards others on accid
 $\color{#1a1a42}\textsf{ its rare but i try to control it, im sorry if i lashed out on you though }$
 
 
-<img width="500" height="32" alt="webbrowser" src="https://github.com/user-attachments/assets/db8a8060-4040-457c-bfc8-7001699d3efd" />
+<img width="500" height="500" alt="blue" src="https://github.com/user-attachments/assets/92e2f57c-6a79-4bf5-99ef-f121934faa5c" />
 
 
-<img width="600" height="338" alt="darkbkue" src="https://github.com/user-attachments/assets/473946ef-81e5-43f4-9d90-2297ea62d048" />
-
-
-<img width="500" height="4" alt="bluesparkle" src="https://github.com/user-attachments/assets/1fbb72f6-aecf-4b58-ab41-7a080cb385cd" />
 
 $\color{#1a1a42}\textsf{ STAMPS OR SOMETHING IDK}$
 
 
+<img width="500" height="53" alt="whateverman2" src="https://github.com/user-attachments/assets/69f7beaf-c330-44b9-9478-db7bf3ca8372" />
 
 <img width="99" height="56" alt="stamp (4)" src="https://github.com/user-attachments/assets/4997f4ee-3b7f-4ce6-a7ca-f14ced4e40ef" />
 
@@ -69,9 +66,14 @@ $\color{#1a1a42}\textsf{ STAMPS OR SOMETHING IDK}$
 
 <img width="99" height="56" alt="stamp (5)" src="https://github.com/user-attachments/assets/6173ebb4-1322-4d3c-a883-898fe8dbc800" />
 
+<img width="500" height="53" alt="whateverman" src="https://github.com/user-attachments/assets/c9af7054-3f5e-41de-8c24-ba75992aaa01" />
 
 
-<img width="500" height="4" alt="tumblr_31d56d39f12e4983a28a555452b1854c_c61f2a63_500" src="https://github.com/user-attachments/assets/a703ae70-5257-445d-b1bb-204a6fd7f0db" />
+
+
+
+<img width="500" height="500" alt="blue3" src="https://github.com/user-attachments/assets/6d2f3c8f-7ed6-4963-b0b7-254a7d8599fb" />
+
 
 
 
