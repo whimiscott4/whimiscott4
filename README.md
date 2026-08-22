@@ -3,7 +3,7 @@
 ( THIS IS WIP, IT IS NOT FINISHED YET, TAKE THIS WITH A GRAIN OF SALT.)
 (also offtopic but im pony town's daiyousei in pt's hall of media LETSSS GOOOOO)
 
-
+(IMPORTANT: hi if you're seeing this i won't play pony town now because I accidentally deleted all of my browser progress and saved info on my laptop so I cant access pony town and my Gmail and socials anymore (they're all on my laptop only))
 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Schoolbell&pause=1000&color=B12929&width=435&lines='+jx1dx1+is+my+DAD!!+%2C;'+and+i+am+his+TOTALLY+real+son!+%2C+;'++havent+i+been+already+been+like.++%2C;'+saying+this+for+months+already+%2C;'+its+probably+outdated+now+already+isnt+it+huh+%2C;'+but+whatever+.+%2C)](https://git.io/typing-svg)
