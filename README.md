@@ -3,177 +3,58 @@
 ( THIS IS WIP, IT IS NOT FINISHED YET, TAKE THIS WITH A GRAIN OF SALT.)
 (also offtopic but im pony town's daiyousei in pt's hall of media LETSSS GOOOOO)
 
+<img width="600" height="263" alt="hello" src="https://github.com/user-attachments/assets/78d348fe-802f-467c-8cd0-b305429d4cfc" />
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Schoolbell&pause=1000&color=B12929&width=435&lines='+jx1dx1+is+my+DAD!!+%2C;'+and+i+am+his+TOTALLY+real+son!+%2C+;'++havent+i+been+already+been+like.++%2C;'+saying+this+for+months+already+%2C;'+its+probably+outdated+now+already+isnt+it+huh+%2C;'+but+whatever+.+%2C)](https://git.io/typing-svg)
+ $\color{#959222}\textsf{ UHHH my name is whimiscott4 or ribbony hi }$ 
+  $\color{#2b3783}\textsf{ you may know as the jx1dx1 is my dad/i am jx1's son guy  }$ 
+  $\color{#395c1c}\textsf{ or the daiyousei of pony town in the pony town hall of media i guess?? i dunno also this is wip im trying to remake this }$ 
 
 
-<img width="500" height="81" alt="whtvthisis" src="https://github.com/user-attachments/assets/b95dd0a2-794b-4dcc-9faa-8535e8813083" />
 
 
+<img width="60" height="60" alt="icecream2" src="https://github.com/user-attachments/assets/b2729fcd-65ff-4e02-acb2-452231bf692c" />
 
+ $\color{#959222}\textsf{ STAMPS!!! }$ 
 
+<img width="99" height="56" alt="drawing" src="https://github.com/user-attachments/assets/b2652cb8-5dfe-483f-bb95-09896c591ba0" />
+<img width="99" height="56" alt="lemons" src="https://github.com/user-attachments/assets/f33b418f-1405-4013-8519-10d5c71468ce" />
+<img width="99" height="56" alt="dummy" src="https://github.com/user-attachments/assets/a00ea89a-40f5-4da9-bec5-feb1c1a21586" />
+<img width="99" height="56" alt="kitty" src="https://github.com/user-attachments/assets/ee723b4d-6686-4f5d-ad61-23af658524f1" />
+<img width="99" height="56" alt="stampcollect" src="https://github.com/user-attachments/assets/5789d51e-dbc8-42b1-93e7-8408a12d22c1" />
+<img width="99" height="56" alt="toomanystamps" src="https://github.com/user-attachments/assets/9f8e694d-d8a4-4774-9704-bd99dac7a724" />
+<img width="99" height="56" alt="plants" src="https://github.com/user-attachments/assets/390ae417-5b63-44d7-be29-5cdaf6488422" />
+<img width="99" height="54" alt="downloading" src="https://github.com/user-attachments/assets/64cd0e1f-da24-47f0-9218-7efcc1850891" />
+<img width="99" height="56" alt="awesome" src="https://github.com/user-attachments/assets/1f2ee06c-cfc1-46d2-a427-f880d82981c6" />
+<img width="98" height="55" alt="3dsownerithink" src="https://github.com/user-attachments/assets/e29e7d14-d3fa-4394-8060-aada7247926e" />
+<img width="99" height="55" alt="faces" src="https://github.com/user-attachments/assets/eba2aa6a-e27a-4179-b03e-a22d3c41f198" />
+<img width="99" height="56" alt="coollookingstamp" src="https://github.com/user-attachments/assets/79012f09-8560-4a41-b640-25c47cec98eb" />
 
- $\color{#b12929}\textsf{ hi! }$ 
-<img width="32" height="32" alt="New Piskel (2)" src="https://github.com/user-attachments/assets/58f5091d-aebe-4316-bf12-853df840f6b5" />
 
 
-$\color{#1a1a42}\textsf{ my name is whimiscott4, or known as ribbony by others, }$ 
 
 
-
-$\color{#103124}\textsf{ i like gori cuddly carnage, touhou, super scuffle, pac man, and also somewhat baldi basics too, and more!!˙𐃷˙   }$ 
-
-
-
-<img width="500" height="81" alt="whtvthisis24" src="https://github.com/user-attachments/assets/95df6199-6792-4e02-a447-6c0c9571af04" />
-
-
-
-
-
-
-
-
-
-
-
-<img width="500" height="20" alt="tumblr_34e1572ca1a10e3deb3075ce2afb44fe_5c3f2f04_500" src="https://github.com/user-attachments/assets/2ad77ec6-3bd7-4a9e-8cd0-48362049e768" />
-
-<img width="500" height="123" alt="darkforest" src="https://github.com/user-attachments/assets/760a80dd-b87e-4be2-ba31-98923bc1f46f" />
-
-
-
-$\color{#b12929}\textsf{ theres really nothing about myself tbh}$
-
-$\color{#103124}\textsf{ whoever i can be somewhat harsh towards others on accident :(}$
-
-
-$\color{#1a1a42}\textsf{ its rare but i try to control it, im sorry if i lashed out on you though }$
-
-
-<img width="500" height="123" alt="darkforest" src="https://github.com/user-attachments/assets/42ee2d2b-1c20-4a7c-9d90-e60b009b3040" />
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-<img width="500" height="500" alt="blue" src="https://github.com/user-attachments/assets/92e2f57c-6a79-4bf5-99ef-f121934faa5c" />
-
-
-
-<img width="500" height="53" alt="whateverman2" src="https://github.com/user-attachments/assets/69f7beaf-c330-44b9-9478-db7bf3ca8372" />
-
-
-
-$\color{#1a1a42}\textsf{ STAMPS OR SOMETHING IDK}$
-
-
-
-
-<img width="99" height="56" alt="stamp (4)" src="https://github.com/user-attachments/assets/4997f4ee-3b7f-4ce6-a7ca-f14ced4e40ef" />
-
-
-
-<img width="99" height="56" alt="stamp (3)" src="https://github.com/user-attachments/assets/9faa9c4d-6880-4a62-a4ca-a510f0dac59e" />
-
-
- 
-<img width="99" height="56" alt="stamp (6)" src="https://github.com/user-attachments/assets/fb630765-df13-4315-a6a7-0e29d382dbf9" />
-
-
-
-<img width="99" height="56" alt="stamp (5)" src="https://github.com/user-attachments/assets/6173ebb4-1322-4d3c-a883-898fe8dbc800" />
-
-
-
-
-<img width="500" height="53" alt="whateverman" src="https://github.com/user-attachments/assets/c9af7054-3f5e-41de-8c24-ba75992aaa01" />
-
-
-
-
-<img width="500" height="500" alt="blue3" src="https://github.com/user-attachments/assets/6d2f3c8f-7ed6-4963-b0b7-254a7d8599fb" />
-
-
-
-
-
-
-
-
-
-
-$\color{#b12929}\textsf{ socials: }$
-
-
-
-https://www.friendproject.net/view_profile.php?member_id=370009
-
-https://www.tumblr.com/whimiscott4
-
-https://whimiscott4.atabook.org/?page=1
-
-https://www.wattpad.com/user/whimiscott4
-
-https://jx1dx1ismydadokay.straw.page/
-
-https://guns.lol/whimiscott4
-
-https://r2.whiteboardfox.com/gallery/@Whimiscott4
-
-https://bsky.app/profile/whimiscott4.bsky.social
-
-more coming soon...!
-
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=whimiscott4)
-
-
-
-
-$\color{#103124}\textsf{ funny video collection i guess}$
-
-$\color{#1a1a42 }\textsf{ WARNING SOME OF THESE VIDEOS ARE LOUD OR HAVE FLASHING LIGHTS OR SOMETHING IDK BE CAREFUL}$ 
-
-
-
+<img width="240" height="70" alt="tumblr_dac0e50112133756af484813a43f1190_b7147270_250" src="https://github.com/user-attachments/assets/71526c0c-8ef6-406f-8cac-1ceac0872cd6" />
 
 
 <details open>
   <summary>video collection ig</summary>
   <p>
    
-https://github.com/user-attachments/assets/00be4c69-eb41-49c4-954e-021b55ebbe00
+
+https://github.com/user-attachments/assets/199da37c-e5f7-4791-8254-aecb4248dd4c
 
 
-https://github.com/user-attachments/assets/042c207d-cf37-412f-9c51-6caeaea1c5dd
+
+https://github.com/user-attachments/assets/baf801e1-b965-4134-a333-59b31f6dbd7b
 
 
- 
-https://github.com/user-attachments/assets/f062051f-80ad-48ed-b1a9-ac650e71c902
 
-https://github.com/user-attachments/assets/0926d8c8-ecd1-40a3-aad4-709a5d819bfb
+https://github.com/user-attachments/assets/90e62889-1986-42be-9581-d4891f447625
 
-https://github.com/user-attachments/assets/1e7371f1-cffa-4b5b-90a6-550be9a5c6ab
 
-https://github.com/user-attachments/assets/aace4e35-10d4-4d40-9097-512839033393
 
-https://github.com/user-attachments/assets/88ad1aaa-b8a6-4ead-b506-51cb161a80c3
-
-https://github.com/user-attachments/assets/6caf60c8-9b99-4989-be2c-4bbb53af35f7
-
-https://github.com/user-attachments/assets/13fa960d-3836-47f8-8c35-7231478f6ce8
-
-https://github.com/user-attachments/assets/c50296dd-4e36-4f7e-a56a-0e01a99d7438
+https://github.com/user-attachments/assets/2a8f2c53-05bd-4262-9292-f4f8cfe4d23c
 
 
   </p>
@@ -185,11 +66,9 @@ https://github.com/user-attachments/assets/c50296dd-4e36-4f7e-a56a-0e01a99d7438
 
 
 
-
-
-
-
-
+<details open>
+  <summary>Dni list and iwc or whatever list, my english is bad holy shit</summary>
+  <p>
 
 [ THIN ICE AND DNI/DNFI LIST. ]
 
@@ -246,7 +125,7 @@ DNI/DNFI: CULT MEMBERS/LEADERS. (for example: meowism, spawnism, etc)
 
 DNI/DNFI: BOYFRIENDS WEBTOON FANS.
 
-DNI/DNFI: DARKSHIPPERS OR ANYONE THAT SITS UNDER THE PROTREE.
+DNI/DNFI: DARKSHIPPERS.
 
 DNI/DNFI: ANY FURRY INFECTION FANS.
 
@@ -302,7 +181,10 @@ PLEASE INTERACT IF YOU ARE A
 
 
 -A POKEMON FAN.
+  </p>
+</details>
 
+<img width="240" height="50" alt="tumblr_e5d18a963069eeba25d53588a06d635d_cbfb1bc7_250" src="https://github.com/user-attachments/assets/3d7467cd-5622-4aa0-b3fb-dd10fe8f32e3" />
 
 
 ignore this im trying to test on how to color my text and something else idk
@@ -315,6 +197,7 @@ ignore this im trying to test on how to color my text and something else idk
 </details>
 
  $\color{#b12929}\textsf{ h }$ 
+ 
 
  
 
