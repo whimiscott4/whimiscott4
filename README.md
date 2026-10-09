@@ -32,11 +32,6 @@
 
 
 
-
-
-<img width="240" height="70" alt="tumblr_dac0e50112133756af484813a43f1190_b7147270_250" src="https://github.com/user-attachments/assets/71526c0c-8ef6-406f-8cac-1ceac0872cd6" />
-
-
 <details open>
   <summary>video collection ig</summary>
   <p>
@@ -184,7 +179,6 @@ PLEASE INTERACT IF YOU ARE A
   </p>
 </details>
 
-<img width="240" height="50" alt="tumblr_e5d18a963069eeba25d53588a06d635d_cbfb1bc7_250" src="https://github.com/user-attachments/assets/3d7467cd-5622-4aa0-b3fb-dd10fe8f32e3" />
 
 
 ignore this im trying to test on how to color my text and something else idk
