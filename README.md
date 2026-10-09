@@ -13,6 +13,10 @@
 
 
 
+ ![](https://komarev.com/ghpvc/?username=whimiscott4&color=yellowgreen)
+
+
+
 
 <img width="60" height="60" alt="icecream2" src="https://github.com/user-attachments/assets/b2729fcd-65ff-4e02-acb2-452231bf692c" />
 
