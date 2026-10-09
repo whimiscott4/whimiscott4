@@ -1,4 +1,4 @@
-
+<img width="541" height="371" alt="brosonmygithub" src="https://github.com/user-attachments/assets/be2d258d-0dcf-445c-9d2d-ce5994aec5a3" />
 
 ( THIS IS WIP, IT IS NOT FINISHED YET, TAKE THIS WITH A GRAIN OF SALT.)
 (also offtopic but im pony town's daiyousei in pt's hall of media LETSSS GOOOOO)
@@ -8,7 +8,8 @@
 
  $\color{#959222}\textsf{ UHHH my name is whimiscott4 or ribbony hi }$ 
   $\color{#2b3783}\textsf{ you may know as the jx1dx1 is my dad/i am jx1's son guy  }$ 
-  $\color{#395c1c}\textsf{ or the daiyousei of pony town in the pony town hall of media i guess?? i dunno also this is wip im trying to remake this }$ 
+  $\color{#395c1c}\textsf{ or the daiyousei of pony town in the pony town hall of media i guess?? i dunno also this
+ is wip im trying to remake this }$ 
 
 
 
