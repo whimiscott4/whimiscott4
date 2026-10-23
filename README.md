@@ -42,28 +42,6 @@
 
 
 
-<details open>
-  <summary>video collection ig</summary>
-  <p>
-   
-
-https://github.com/user-attachments/assets/199da37c-e5f7-4791-8254-aecb4248dd4c
-
-
-
-https://github.com/user-attachments/assets/baf801e1-b965-4134-a333-59b31f6dbd7b
-
-
-
-https://github.com/user-attachments/assets/90e62889-1986-42be-9581-d4891f447625
-
-
-
-https://github.com/user-attachments/assets/2a8f2c53-05bd-4262-9292-f4f8cfe4d23c
-
-
-  </p>
-</details>
 
 
 
@@ -71,8 +49,11 @@ https://github.com/user-attachments/assets/2a8f2c53-05bd-4262-9292-f4f8cfe4d23c
 
 
 
-<details open>
-  <summary>Dni list and iwc or whatever list, my english is bad holy shit</summary>
+
+
+
+<details closed>
+  <summary>Dni list and iwc or whatever list,this is kinda old might update later, my english is bad holy shit</summary>
   <p>
 
 [ THIN ICE AND DNI/DNFI LIST. ]
