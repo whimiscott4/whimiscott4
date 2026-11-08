@@ -1,4 +1,4 @@
-
+ 
 
 
 <img width="541" height="371" alt="brosonmygithub2" src="https://github.com/user-attachments/assets/9a1c505d-4d96-47cd-8975-3debebd53f85" />
@@ -12,7 +12,8 @@
 
  $\color{#959222}\textsf{ UHHH my name is whimiscott4 or ribbony hi }$ 
   $\color{#2b3783}\textsf{ you may know as the jx1dx1 is my dad/i am jx1's son guy  }$ 
-  $\color{#395c1c}\textsf{ placeholder }$ 
+  
+  $\color{#395c1c}\textsf{  /S/lOa[I] phleg/san }$ 
 
 
 
