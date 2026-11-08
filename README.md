@@ -12,8 +12,7 @@
 
  $\color{#959222}\textsf{ UHHH my name is whimiscott4 or ribbony hi }$ 
   $\color{#2b3783}\textsf{ you may know as the jx1dx1 is my dad/i am jx1's son guy  }$ 
-  $\color{#395c1c}\textsf{ or jx1's son/the jx1dx1 is my dad guy i guess????  i dunno also this
- is wip im trying to remake this }$ 
+  $\color{#395c1c}\textsf{ placeholder }$ 
 
 
 
